@@ -8,6 +8,7 @@
 - [x] Capítol 6: Millor no mirrar enrere (`06-capitol-6.md`)
 - [x] Capítol 7: Quan la llum no pot amb tot (`07-capitol-7.md`)
 - [x] Capítol 8: Nit a casa de Nico (`08-capitol-8.md`)
+- [x] Capítol 9: La trobada de Sky i Miquel (`09-capitol-9.md`)
 
 ## Notes generals
 
