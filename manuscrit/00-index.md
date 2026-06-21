@@ -9,6 +9,7 @@
 - [x] Capítol 7: Quan la llum no pot amb tot (`07-capitol-7.md`)
 - [x] Capítol 8: Nit a casa de Nico (`08-capitol-8.md`)
 - [x] Capítol 9: La trobada de Sky i Miquel (`09-capitol-9.md`)
+- [x] Capítol 10: L'últim dia d'estiu (`10-capitol-10.md`)
 
 ## Notes generals
 

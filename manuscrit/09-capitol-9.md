@@ -262,3 +262,203 @@ Havia volgut que Sky el perdonara.
 **Però Sky no havia anat allí a salvar-lo.**
 
 **Havia anat a deixar de carregar amb ell.**
+
+Miquel va tardar una estona a alçar-se.
+
+Quan ho va fer, tenia les cames fluixes i la panxa encara adolorida. Va
+caminar cap al centre sense mirar ningú. El cigarret li havia deixat una
+olor amarga als dits. Es va fregar la mà contra els pantalons, com si
+poguera esborrar-la.
+
+Però no podia.
+
+No podia esborrar el fum.  
+No podia esborrar el bes.  
+No podia esborrar la cara de Sky quan li havia dit que no l'esperaria.
+
+En arribar a la porta del centre, una treballadora li va preguntar si
+estava bé.
+
+Miquel va intentar assentir.
+
+No li va eixir.
+
+Va entrar al passadís i, només sentir el soroll de la porta tancant-se
+darrere d'ell, es va trencar. No va ser un plor bonic ni silenciós. Va
+ser un plor brut, amb la respiració tallada, amb les mans tremolant i la
+cara amagada perquè ningú el vera així.
+
+Però algú el va veure.
+
+Victor estava al final del passadís, prop de la sala comuna. S'havia
+quedat allí des de feia uns minuts, amb un got d'aigua a les mans, mirant
+com Miquel tornava.
+
+L'havia vist aquell matí.
+
+L'havia vist fer flexions amb els braços tremolant. L'havia vist demanar
+permís per córrer. L'havia vist intentar ser millor amb una obstinació
+que feia mal de mirar.
+
+I ara el veia tornar destrossat.
+
+Victor no va dir res al principi. Només es va acostar a poc a poc, com
+si sabera que una paraula massa ràpida podia fer que aquell noi fugira.
+
+—Ei.
+
+Ell va alçar el cap de colp. Tenia els ulls rojos.
+
+—No em mires així —va dir, amb ràbia trencada—. No em tingues pena.
+
+Victor va negar amb el cap.
+
+—No és pena.
+
+—Doncs què és?
+
+Victor va tardar a contestar.
+
+—És reconéixer una cosa.
+
+Miquel va respirar malament, com si li faltara aire.
+
+—No em coneixes.
+
+—No —va admetre Victor—. Ni tan sols sé com et dius. Però conec eixa
+cara.
+
+Miquel va apartar la mirada.
+
+—Quina cara?
+
+—La d'algú que s'ha esforçat molt al matí i ha tornat pensant que tot
+l'esforç no ha servit per a res.
+
+Aquella frase li va fer més mal que qualsevol sermó.
+
+Miquel va apretar les dents.
+
+—He fet mal a Sky.
+
+Victor va entendre que Sky devia ser la xica que acabava de marxar. Va
+baixar la mirada un segon.
+
+—A la xica que ha vingut abans?
+
+—I ella té raó —va dir Miquel, cada vegada més desfet—. Jo volia que em
+perdonara perquè jo no podia aguantar sentir-me així. No perquè ella
+estiguera preparada.
+
+Victor no el va interrompre.
+
+—He sigut egoista —va continuar Miquel—. I després he fumat. Després
+d'haver començat el dia pensant que podia fer-ho bé. **Soc un desastre.**
+
+Victor va deixar el got damunt d'una taula propera.
+
+—No eres un desastre per caure.
+
+Miquel va riure amb ràbia.
+
+—No em vingues amb frases de centre.
+
+—No és una frase de centre —va dir Victor, amb veu baixa—. És una frase
+d'algú que també ha caigut moltes vegades.
+
+Miquel el va mirar per primera vegada de veritat.
+
+Victor semblava cansat. No com els adults que volen donar lliçons. Més
+bé com algú que ha perdut massa coses per haver arribat tard.
+
+—Tu també estàs ací pel mateix? —va preguntar Miquel.
+
+Victor va assentir molt a poc a poc.
+
+—Per coses paregudes.
+
+—També has fet mal a algú?
+
+La pregunta va quedar suspesa al passadís.
+
+Victor va respirar fondo.
+
+—Sí.
+
+Miquel va abaixar el cap.
+
+—Jo a Sky.
+
+—Sí.
+
+—I Rebeca.
+
+Victor no sabia qui era Rebeca, però no li calia saber-ho per entendre
+el pes d'eixe nom.
+
+—També —va dir, només.
+
+Miquel es va tapar la cara amb les mans.
+
+—No sé com arreglar-ho.
+
+Victor es va asseure al seu costat, a terra, sense importar-li que el
+passadís no fora lloc per a això.
+
+—Potser hui no toca arreglar-ho.
+
+Miquel el va mirar, confós.
+
+—I què toca?
+
+—Tornar a l'habitació. Respirar. Dir la veritat quan et pregunten què ha
+passat. I demà, si pots, tornar a intentar-ho sense convertir el teu
+dolor en una promesa que els altres hagen de creure.
+
+Miquel va plorar més fluix.
+
+—No vull ser com els adults que prometen i després no tornen.
+
+Victor va tancar els ulls un instant. Aquella frase també li havia
+tocat.
+
+—Llavors comença per no prometre coses grans quan estàs trencat —va dir.
+—Promet només la següent cosa menuda.
+
+—Quina?
+
+Victor li va allargar el got d'aigua.
+
+—Beu. I no fumes ara.
+
+Miquel va mirar el got com si fora una cosa ridícula.
+
+Després el va agafar.
+
+Li tremolaven les mans, però va beure.
+
+—Com et dius? —va preguntar Victor, després d'una estona.
+
+Miquel va mirar el got.
+
+—Miquel.
+
+Victor va assentir, guardant el nom com qui rep una cosa fràgil.
+
+—Jo soc Victor.
+
+Miquel no va dir res més. Encara no sabia qui era aquell home. No sabia
+res dels fills que esperaven fora de les seues decisions, ni de les
+promeses que Victor també havia trencat.
+
+Però en aquell moment tampoc feia falta.
+
+Victor no el va abraçar. No li va dir que tot aniria bé. No li va donar
+un perdó que no era seu.
+
+Només es va quedar al seu costat.
+
+I, per primera vegada aquell dia, Miquel no va sentir que algú intentava
+salvar-lo.
+
+Va sentir que algú l'havia vist.
