@@ -5,7 +5,7 @@ Repositori de treball per escriure **Al Jimmy Bar**, una novel·la de gènere ad
 ## Estructura
 
 - `manuscrit/`: capítols i índex del llibre.
-- `notes/`: personatges, escaleta, món narratiu i idees pendents.
+- `notes/`: bíblia de la novel·la, personatges, escaleta, món narratiu i idees pendents.
 - `recursos/`: imatges, referències o documents auxiliars.
 - `docs/`: criteris d’estil, planificació i materials de suport.
 
@@ -18,4 +18,4 @@ Repositori de treball per escriure **Al Jimmy Bar**, una novel·la de gènere ad
 
 ## Estat
 
-Projecte inicialitzat. Primer objectiu: completar sinopsi, personatges principals i escaleta de capítols.
+Projecte inicialitzat. Document de referència principal: `notes/biblia-novella.md`.
