@@ -1,0 +1,10 @@
+.DS_Store
+*.tmp
+*.bak
+~
+
+# Exports generats
+exports/
+*.pdf
+*.epub
+*.docx
