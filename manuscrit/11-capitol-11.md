@@ -757,4 +757,103 @@ Només una mica.
 Però en aquella casa, aquell vint-i-quatre de desembre, una mica ja era
 molt.
 
+Al matí següent, Jimy va ser el primer a despertar-se.
+
+O això va creure.
+
+Quan va obrir els ulls, encara era prompte. La casa estava en silenci, amb
+aquell silenci estrany dels matins de Nadal, com si fins i tot les parets
+saberen que aquell dia havia de ser especial. Durant uns segons no va
+recordar on era. Després va veure la manta que no era seua, la llum entrant
+per una finestra desconeguda i el pes suau de tot el que havia passat la
+nit anterior.
+
+Era el seu aniversari.
+
+Però no va sentir alegria de seguida.
+
+Va baixar les escales sense fer soroll. Anava a buscar aigua, o potser
+només necessitava moure's abans que els pensaments el trobaren del tot.
+
+La cuina tenia llum.
+
+Pol i Siena ja eren desperts.
+
+Jimy es va quedar parat abans d'entrar. No volia escoltar d'amagat, però va
+sentir el seu nom per dins de la preocupació dels adults i els peus se li
+van quedar clavats al terra.
+
+—Pol, estic preocupada —deia Siena, amb la veu baixa—. Miquel està molt
+apagat. I Rebeca creu que morirà. Com puc dir-li a Miquel que sortirà
+d'aquesta si no ho sé?
+
+Pol no va contestar de seguida.
+
+Siena va continuar, més fluix encara:
+
+—I si Rebeca té raó? I si Miquel mor allà?
+
+El cor de Jimy va fer un colp sec.
+
+Pol va respirar fondo.
+
+—D'acord. Em pose en contacte amb Lisa. Li diré que parle amb Miquel.
+
+—Pol...
+
+—Ho sé. Però necessitem ajuda. Jo... Rebeca em preocupa molt. I si està
+entrant en una depressió causada pel seu germà? Açò no pot seguir així.
+
+Jimy va tancar els ulls.
+
+Durant un moment va tornar a veure sa mare. No com una imatge clara, sinó
+com una absència. Una porta que ningú obria. Un silenci que tots intentaven
+omplir amb frases que no servien.
+
+Va pujar les escales sense entrar a la cuina.
+
+Primer va anar a l'habitació on dormien Gael i Miquel.
+
+La porta estava mig oberta. Gael dormia de costat, amb el front arrufat fins
+i tot adormit, com si encara discutira amb algú en somnis. Miquel estava a
+l'altre costat, quiet, massa quiet, amb els cabells desordenats i la cara
+pàl·lida.
+
+Jimy es va acostar amb cura.
+
+No el va despertar.
+
+Només li va acaronar els cabells molt suaument, com si aquell gest poguera
+protegir-lo d'alguna cosa que cap d'ells sabia encara com véncer.
+
+—Continua intentant-ho —va murmurar, quasi sense veu.
+
+Després va eixir.
+
+Va anar a l'habitació on dormia Rebeca.
+
+Ella estava girada de costat, amb els cabells solts escampats pel coixí.
+Aquell detall li va fer mal una altra vegada. Jimy es va quedar mirant-la
+un segon abans de gitar-se al seu costat amb molta cura.
+
+Rebeca es va moure una mica, però no es va despertar del tot.
+
+Jimy la va envoltar per la cintura i la va acostar suaument a ell. Li va fer
+un bes a la galta, tan suau que quasi era una disculpa.
+
+—No puc assegurar-te que Miquel isca —li va xiuxiuejar—. Però ell està
+intentant eixir. I es nota.
+
+Rebeca va obrir els ulls lentament.
+
+Jimy va recolzar el front prop del seu muscle.
+
+—Ma mare no ho va intentar ni una vegada.
+
+Rebeca no va respondre.
+
+Però la mà que tenia damunt del llençol va buscar la de Jimy.
+
+I la va agafar.
+
 <!-- CONTINUAR ACÍ: aniversari de Jimy i escenes següents del Nadal -->
