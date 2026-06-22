@@ -32,6 +32,14 @@ Per això veure Marcos així la va destrossar una mica més.
 
 Era com si Colòmbia haguera d'haver sigut una escapada, un lloc on respirar diferent, i en canvi només li confirmara que la tristesa podia travessar oceans i esperar-te asseguda en un sofà.
 
+Sky es va quedar molt prop de Marcos.
+
+No va saber què dir-li al principi. No era fàcil mirar el seu pare així, apagat, tirat al sofà, com si algú li haguera llevat les ganes de moure's. Però tampoc podia apartar-se'n. Potser perquè ella també estava passant per una cosa semblant. Potser perquè reconeixia aquella manera d'estar sense estar.
+
+Per a Sky, Marcos era un refugi.
+
+Encara que ell ara també estiguera trencat.
+
 —Hola —va dir Emma, amb una veu massa suau.
 
 Marcos va girar el cap lentament.
@@ -88,7 +96,7 @@ I el llibre.
 
 I va decidir agafar-se a això com qui s'agafa a una barana.
 
-—Estic fent un llibre amb un amic meu —va explicar, mirant al voltant—. Es diu Leo. Bé, el meu amic es diu Leo. El llibre va sobre coses típiques de diferents llocs.
+—Estic fent un llibre amb un xic que es diu Leo —va explicar, mirant al voltant—. El llibre va sobre coses típiques de diferents llocs.
 
 Una de les germanes de Marcos va alçar les celles.
 
@@ -104,19 +112,23 @@ Emma no va dir res, però tampoc la va parar.
 
 Va fer una pausa i va abaixar un poc la veu.
 
-—Leo no parla gaire, la veritat. Però escriu i dibuixa com si tot el que no diu ho guardara allí. És el meu amic des que tenia cinc anys. L'únic amic que sempre ha estat, fins i tot quan jo no sabia explicar què em passava.
+—Leo no parla gaire, la veritat. Escriu i dibuixa com si tot el que no diu ho guardara allí.
+
+Sky va somriure una mica, pensant en ell.
+
+—Ell no tenia amics des que son pare va marxar. Tenia cinc anys. Luca també. Des d'aleshores, Leo s'havia acostumat massa a estar sol. Després, aquest estiu, ens vam conéixer. I ara jo soc la seua única amiga.
 
 Emma la va mirar amb una tendresa silenciosa.
 
 Sky va continuar perquè, si parava, tornaria a pensar en Marcos, en Miquel, en el divorci, en tot.
 
-—Així que necessite coses bones per contar-li. Coses de Colòmbia. Coses que li puguen agradar.
+—Així que necessite coses bones per contar-li. Coses de Colòmbia. Coses que li puguen agradar. Perquè Leo no pregunta molt, però quan escolta, escolta de veritat.
 
 Per primera vegada des que havien entrat, una de les dones de la casa va somriure de veritat.
 
 —Això dona per a molt.
 
-—Perfecte —va dir Sky—. Leo no parla molt, però quan li interessa una cosa, escolta com si el món sencer estiguera dins d'això.
+—Perfecte —va dir Sky—. Necessite molt de material per al llibre.
 
 Emma va deixar escapar una rialla molt xicoteta.
 
