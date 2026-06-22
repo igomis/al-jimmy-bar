@@ -149,6 +149,20 @@ Gael va entrar i Miquel el va abraçar sense pensar-s'ho. Gael es va quedar
 rígid al principi, però després li va tornar l'abraçada amb una força
 curta, quasi enfadada, com si li molestara necessitar-la.
 
+Gael tenia vint-i-un anys i una manera molt seua d'estimar: malament, a
+colps, amb massa orgull i massa ràbia guardada. Sempre havia sigut gelós.
+Sempre havia tingut problemes per controlar la ira. Però des que Miquel
+havia acabat al centre, alguna cosa dins d'ell s'havia mogut.
+
+Hi havia nits que es preguntava si Miquel havia caigut també per culpa
+seua. Per les discussions. Per no haver estat pendent. Per haver convertit
+massa coses en una baralla quan potser el seu germà només necessitava que
+algú li preguntara si podia més.
+
+Per això ara somreia més.
+
+No perquè estiguera millor, sinó perquè intentava rectificar alguna cosa.
+
 —Estàs millor? —va preguntar Gael.
 
 Miquel va apartar-se una mica.
@@ -161,8 +175,15 @@ Miquel va mirar cap al passadís.
 
 —Estic intentant-ho.
 
-Gael va assentir. No va dir res més, però aquella vegada no va sonar a
-poc.
+Gael va assentir. Volia preguntar-li moltes coses. Volia dir-li que estava
+preocupat, que tenia por, que no sabia com mirar-lo sense sentir culpa.
+Però les paraules li van quedar encallades. Tenia por que Miquel se sentira
+incòmode, com si tots el vigilaven.
+
+Així que va callar.
+
+I aquella vegada el seu silenci no va sonar a distància. Va sonar a algú
+intentant no trencar el poc que encara estava dret.
 
 Rebeca no hi era.
 
@@ -420,4 +441,320 @@ no era sa mare, però tampoc era una estranya.
 
 I això el va espantar quasi tant com el va calmar.
 
-<!-- CONTINUAR ACÍ: conversa de Siena amb Rebeca i escenes següents del Nadal -->
+Quan Siena va eixir de la cuina, Jimy encara estava al passadís amb Rebeca.
+Cap dels dos parlava. Rebeca tenia els braços creuats i la mirada clavada
+en algun punt del terra, com si si alçava els ulls tot el que havia dit li
+cauria damunt.
+
+—Rebeca —va dir Siena.
+
+Ella va alçar el cap.
+
+—Què?
+
+Siena va mirar Jimy un segon.
+
+—Puc parlar amb tu a soles?
+
+Jimy va entendre-ho de seguida.
+
+—Jo... sí. Vaig a veure Miquel.
+
+Rebeca va fer un gest ràpid, quasi de protesta, però no va dir res. Jimy
+va pujar les escales amb el cor massa accelerat.
+
+A dalt, la porta de l'habitació de Miquel estava mig tancada.
+
+Jimy va anar a tocar, però es va quedar parat.
+
+Miquel estava assegut al llit amb una cigarreta entre els dits.
+
+Encara no l'havia encés.
+
+Però l'encenedor estava al seu costat.
+
+—No —va dir Jimy.
+
+Miquel va alçar el cap, espantat.
+
+—Jimy...
+
+—No ho faces.
+
+La veu de Jimy es va trencar abans d'arribar al final de la frase. Va
+entrar a l'habitació i va tancar la porta darrere d'ell.
+
+—Per favor, no ho faces.
+
+Miquel va mirar la cigarreta com si no fora seua.
+
+—Només... no podia més.
+
+—Ho sé.
+
+Jimy tenia els ulls plens de llàgrimes. No intentava amagar-les.
+
+—Però no pots. No ara. No després de tot el que has fet per tornar uns
+dies.
+
+Miquel va tancar els dits al voltant de la cigarreta.
+
+—Rebeca no vol ni que li parle.
+
+—Perquè està trencada.
+
+—Per culpa meua.
+
+—Sí —va dir Jimy, i a Miquel li va fer mal que no mentira—. Però també
+perquè t'estima. I perquè té por. I perquè no sap com preparar-se per si
+un dia no tornes.
+
+Miquel va abaixar la mirada.
+
+Jimy va fer un pas cap a ell.
+
+—Demà és el meu aniversari.
+
+Miquel va alçar els ulls.
+
+—Ja ho sé.
+
+—No puc tindre un aniversari sense tu.
+
+La frase va quedar suspesa entre els dos.
+
+Miquel va parpellejar, com si no l'haguera entesa.
+
+—Què?
+
+—Que no puc —va repetir Jimy, plorant ja sense vergonya—. No puc celebrar
+res sabent que tu t'estàs rendint en l'habitació de dalt. No després de tot
+el que hem passat. No després de veure com la meua mare va anar-se'n sense
+lluitar per quedar-se amb mi.
+
+Miquel va obrir la boca, però no va dir res.
+
+Jimy es va agenollar davant d'ell.
+
+—No faces com ella. No ens deixes mirant una porta tancada sense saber si
+vas a tornar. Esforça't. Encara que siga per Rebeca. Encara que hui no
+puga mirar-te. Encara que tinga ràbia. Has d'eixir d'allà, Miquel.
+
+Miquel va començar a plorar en silenci.
+
+Jimy li va llevar la cigarreta de la mà molt a poc a poc i la va deixar
+damunt de la tauleta, lluny de l'encenedor.
+
+Després el va abraçar.
+
+Fort.
+
+Miquel es va quedar quiet al principi, com si no sabera si tenia dret a
+rebre aquell abraç. Però després es va trencar. Va enfonsar la cara en el
+muscle de Jimy i va plorar com un xiquet massa cansat d'intentar semblar
+més fort del que era.
+
+A baix, Siena havia portat Rebeca al menjador.
+
+—Per què li has dit això? —va preguntar, sense duresa—. Per què li has dit
+que no et parle?
+
+Rebeca va apartar la mirada.
+
+—No ho sé.
+
+—Sí que ho saps.
+
+Rebeca va tancar els ulls.
+
+—Perquè si em parla, me'l crec.
+
+Siena va callar.
+
+—Si em diu que està millor, me'l crec. Si em diu que està intentant-ho,
+me'l crec. Si em mira com abans, jo torne a esperar. I no puc més.
+
+La veu li va tremolar.
+
+—No vull fer-me il·lusions.
+
+Siena es va asseure al seu costat.
+
+—Rebeca...
+
+—No. És que no ho entens. He de començar a preparar-me.
+
+—Preparar-te per a què?
+
+Rebeca va mirar-la amb els ulls plens de llàgrimes.
+
+—Per si Miquel es mor.
+
+Siena es va quedar sense paraules.
+
+—No vull que em passe com a Jimy amb sa mare —va continuar Rebeca—. No vull
+quedar-me esperant una persona que potser no torna mai. Per això intente
+oblidar-lo un poc. Fer-me creure que ja l'he perdut. Que Miquel ja ha mort.
+Perquè si algun dia passa de veritat... potser ja no em quedaran tantes
+llàgrimes per plorar.
+
+Siena va voler contestar, però no va trobar cap frase que no sonara inútil.
+
+En aquell moment, la porta de casa es va obrir.
+
+Pol va entrar carregat amb bosses de la compra.
+
+—Ja estic! —va dir, abans de notar el silenci.
+
+Es va quedar quiet al rebedor.
+
+—Què ha passat?
+
+Ningú va respondre de seguida.
+
+Jimy baixava les escales en aquell moment, amb els ulls rojos. Miquel venia
+darrere, més pàl·lid, però sense la cigarreta.
+
+Gael va aparéixer també al passadís, mirant primer Miquel i després Jimy.
+No va preguntar res. No sabia com fer-ho sense que sonara malament.
+
+Jimy va respirar fondo.
+
+—Pol, jo... si no et molesta, em quede a dinar. I a dormir.
+
+Pol va mirar-lo.
+
+—Clar que no em molesta.
+
+Jimy va mirar Rebeca i després Miquel.
+
+—Crec que és millor. Rebeca i Miquel estan barallats i... no vull anar-me'n
+ara.
+
+Pol va deixar les bosses damunt la taula i va mirar la seua filla.
+
+—És per això? —li va preguntar—. Perquè Miquel està al centre?
+
+Rebeca va tardar a respondre.
+
+—Sí.
+
+Només una paraula.
+
+Però va sonar com una casa sencera caient.
+
+Pol va assentir molt lentament. No va discutir. No va donar un sermó. Només
+va mirar els tres germans, un per un: Rebeca amb els cabells solts, Miquel
+amb els ulls trencats, Gael amb la mandíbula tensa i les mans tancades.
+
+—Gael —va dir Pol.
+
+Gael va alçar el cap.
+
+—Què?
+
+—Vine ací.
+
+Gael va entrar al menjador.
+
+—Miquel, tu també.
+
+Miquel va mirar Rebeca abans d'obeir. Ella no li va tornar la mirada.
+
+Quan els tres germans van estar en la mateixa habitació, Pol va prendre una
+decisió com si fera hores que ja la tinguera pensada.
+
+—Hui Gael i Miquel dormireu junts.
+
+Gael va obrir els ulls.
+
+—Què?
+
+—El que has sentit.
+
+—Pol...
+
+—No estic preguntant.
+
+Miquel va mirar Gael, incòmode.
+
+—No cal.
+
+—Sí que cal —va dir Pol—. En aquesta casa ningú passa la nit sol quan està
+a punt de trencar-se.
+
+Gael va voler protestar, però va veure la cara de Miquel i es va mossegar
+la llengua. Li hauria agradat saber dir alguna cosa bona. Alguna cosa de
+germà major. Però només li va eixir un gest curt amb el cap.
+
+—D'acord.
+
+Pol va respirar.
+
+—Ara dinarem.
+
+Miquel va fer una passa enrere.
+
+—No tinc fam.
+
+Gael el va mirar de costat. Pensava preguntar-li com estava. De veritat.
+Però la pregunta se li va quedar enganxada a la gola. Tenia por que Miquel
+baixara la mirada, que se sentira observat, que pensara que tots el veien
+com un problema.
+
+Així que va buscar una altra manera.
+
+—Vine a cuinar amb mi.
+
+Miquel va arrufar el front.
+
+—Què?
+
+—Que vingues a cuinar amb mi.
+
+—Per què?
+
+Gael va mirar cap a la cuina, fingint indiferència.
+
+—Perquè sempre demanes disculpes cuinant. És una tradició rara que tens.
+Aprofitem-la.
+
+Miquel va quedar-se callat.
+
+Gael es va encongir de muscles.
+
+—A més, si cuine jo sol, ens intoxiquem tots.
+
+Luca no hi era, però aquella frase hauria sigut seua.
+
+Miquel va deixar escapar una respiració que quasi semblava una rialla.
+No era alegria. Encara no. Però era un fil.
+
+Un fil molt prim.
+
+—D'acord —va dir.
+
+Gael va entrar a la cuina i Miquel el va seguir.
+
+Pol va mirar Siena. Siena va mirar Rebeca. Jimy es va quedar dret al
+passadís, encara amb el pes de l'abraç de Miquel damunt del pit.
+
+A la cuina, Gael va començar a traure coses sense saber ben bé què feia.
+Miquel li va llevar una paella de les mans.
+
+—Això no.
+
+—Ja comences?
+
+—Volies cuinar amb mi o assassinar una paella?
+
+Gael va somriure una mica.
+
+Miquel també.
+
+Només una mica.
+
+Però en aquella casa, aquell vint-i-quatre de desembre, una mica ja era
+molt.
+
+<!-- CONTINUAR ACÍ: aniversari de Jimy i escenes següents del Nadal -->
