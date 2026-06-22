@@ -141,7 +141,7 @@ Leo va mirar Sky, després Luca, després una altra vegada la llibreta.
 
 —Ja m'ho imaginava.
 
-—Parla molt.
+—Parla molt..
 
 —Això també m'ho imaginava.
 
