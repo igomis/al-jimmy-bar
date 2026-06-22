@@ -141,7 +141,7 @@ Leo va mirar Sky, després Luca, després una altra vegada la llibreta.
 
 —Ja m'ho imaginava.
 
-—Parla molt..
+—Parla molt.
 
 —Això també m'ho imaginava.
 
@@ -154,7 +154,7 @@ No ho va presentar com una cosa solemne. Només va dir que era l'últim
 dia d'estiu i que li apetia vore'ls abans que tot tornara a canviar:
 horaris, classes, obligacions, silencis nous.
 
-Van anar-hi Sky, Rebeca, Luca, Leo i Àries. Gael no estava.
+Van anar-hi Sky, Rebeca, Luca, Leo, Àries, Ariel i Jimy. Gael no estava.
 
 Però, d'alguna manera, també estava.
 
@@ -163,7 +163,91 @@ com Àries jugava amb la polsera del canell, nerviós, com si tinguera una
 frase atrapada a la gola. Estava en tot allò que ningú deia perquè encara
 feia massa prompte dir-ho.
 
-Jimy va portar uns fulls i un bolígraf.
+I estava, sobretot, en els cabells de Rebeca.
+
+Rebeca els portava solts.
+
+Sky ho va veure només arribar, i alguna cosa se li va encongir per dins.
+Rebeca quasi sempre duia dues trenes. Podia fer-se-les ella sola, clar,
+però les trenes no eren només un pentinat. Miquel li les feia des que
+eren menuts, primer malament, després millor, després amb aquella paciència
+silenciosa que només tenia amb ella.
+
+Quan Rebeca duia les trenes, era com si una part del vincle entre els dos
+continuara allí, resistint. Encara que Miquel no estiguera. Encara que
+ningú sabera com traure'l d'aquell lloc.
+
+Aquella vesprada no les duia.
+
+Àries ho va notar abans que ningú diguera res. Era la seua cosina. La
+coneixia massa bé per confondre aquell detall amb una casualitat.
+
+Ariel també va mirar els cabells de Rebeca i després la mà d'Àries, que
+s'havia tancat de colp.
+
+Jimy va fer un pas cap a Rebeca, però no va arribar a tocar-la. La coneixia
+prou per saber que, si l'abraçava massa prompte, podia trencar-se.
+
+Sky, en canvi, no va poder callar.
+
+—Què ha passat amb Miquel?
+
+La pregunta va sonar més dura del que volia. Rebeca va alçar el cap.
+
+—Sky...
+
+—No. Digues-m'ho. Perquè has vingut així i tots ho hem vist.
+
+Jimy la va mirar amb suavitat.
+
+—Sky, deixa-la respirar.
+
+Sky va tancar els punys.
+
+—No puc. No puc fer com si no passara res.
+
+Rebeca va mirar el mar. Els cabells li queien pels muscles, sense ordre,
+com si aquell dia tampoc haguera tingut forces per ordenar-se a ella
+mateixa.
+
+—Miquel no està bé —va dir finalment—. Hui ha telefonat ma mare. Diu que
+està pitjor. Que hi ha dies que pregunta per mi i dies que ni tan sols
+vol parlar. I jo... jo ja no sé què esperar.
+
+El grup va quedar en silenci.
+
+Sky va sentir vergonya de la seua pròpia ràbia. No era ràbia contra
+Rebeca. Era ràbia contra tot: contra Miquel patint, contra no poder fer
+res, contra veure la seua millor amiga perdent l'esperança per un detall
+tan senzill com uns cabells solts.
+
+—Perdó —va dir Sky, baixant la veu—. No volia parlar-te així.
+
+Rebeca no va respondre de seguida.
+
+Sky va mirar també Jimy.
+
+—I a tu també. Per la discoteca. Per com us vaig tractar a tu i a Rebeca.
+No estic passant per un bon moment, però això no em dona dret a fer-vos
+mal.
+
+Jimy va negar amb el cap.
+
+—No cal que...
+
+—Sí que cal —el va tallar Sky—. Però no vull que intenteu ajudar-me. No
+ara. No m'agrada com em pose quan la gent intenta salvar-me.
+
+Rebeca va fer un pas cap a ella.
+
+—Sky, jo no vull salvar-te.
+
+—Ja ho sé —va dir Sky—. Per això em fa encara més por.
+
+Ningú va saber què contestar.
+
+Jimy va traure uns fulls i un bolígraf de la motxilla, com si necessitara
+donar al grup alguna cosa concreta on posar tot aquell dolor.
 
 —He pensat una cosa —va dir.
 
@@ -205,7 +289,18 @@ Rebeca va respirar fondo.
 
 —Jo vull intentar parlar amb Gael.
 
-Rebeca va alçar el cap.
+Ariel va girar-se cap a ell de seguida.
+
+—No.
+
+Àries va alçar les celles.
+
+—Ariel...
+
+—No —va repetir ella, més baix, però més ferma—. Quan Gael s'enfada no
+raona. Es posa agressiu. I tu ho saps.
+
+Rebeca va mirar Àries amb preocupació.
 
 —Amb Gael?
 
@@ -220,6 +315,9 @@ Rebeca.
 tinguera una cosa que ell vol. Com si jo li haguera furtat alguna cosa.
 I crec que també té a veure amb Ariel.
 
+Ariel va apartar la mirada. No semblava sorpresa. Semblava cansada de
+saber-ho.
+
 Jimy va escoltar sense interrompre.
 
 Àries va apretar el paper.
@@ -232,13 +330,36 @@ Va riure sense ganes.
 
 —Però no em surt fàcil. Res em surt fàcil.
 
-Sky va mirar-lo amb una tendresa trista.
+Ariel li va agafar la mà.
+
+—Precisament per això no vull que vages sol.
+
+—He de parlar amb ell.
+
+—D'acord —va dir Ariel, després d'uns segons—. Però aniré amb tu.
+
+Àries va negar amb el cap.
+
+—No vull ficar-te enmig.
+
+—Ja estic enmig —va contestar ella—. I si ell es posa violent, potser a
+mi m'escolta abans que a tu. No pense deixar que acabes a l'hospital per
+intentar fer les coses bé.
+
+Àries va voler discutir, però no va poder. Hi havia massa por en la veu
+d'Ariel per convertir-la en una broma.
+
+Sky va mirar-los amb una tendresa trista.
 
 —Què vols prometre exactament?
 
 Àries va escriure una línia.
 
 —**Promet intentar parlar amb Gael sense defensar-me abans d'escoltar-lo.**
+
+Ariel va mirar el paper.
+
+—I jo promet acompanyar-lo. Encara que em faça por.
 
 Rebeca va fer que sí amb el cap.
 
@@ -273,8 +394,8 @@ Jimy va abaixar la mirada, emocionat.
 
 —Gràcies.
 
-Leo va ser l'últim a escriure abans de Jimy i Sky. Va tardar. Va mirar
-el mar, la llibreta, el dibuix del peix que Sky havia fet al matí.
+Leo va tardar a escriure. Va mirar el mar, la llibreta, el dibuix del
+peix que Sky havia fet al matí.
 
 —Jo promet fer el projecte dels peixos —va dir finalment—. El que sempre
 volia fer amb mon pare.
@@ -350,10 +471,80 @@ volem intentar.
 
 Sky va mirar Leo. Leo va mirar el dibuix del peix. Luca va mirar el Jimy
 Bar. Àries va doblegar el paper amb el nom de Gael dins, com si fóra una
-cosa delicada.
+cosa delicada. Ariel va deixar la seua mà damunt de la d'ell.
 
 L'estiu s'acabava.
 
 Però, per primera vegada en molt de temps, no semblava només una pèrdua.
 
 Semblava també un principi.
+
+Rebeca va marxar cap a Moraira quan el cel ja començava a enfosquir-se.
+Sa mare l'esperava a casa i ella havia dit que necessitava tornar-hi,
+encara que ningú tenia clar si tornar a aquella casa li faria bé o només
+li faria recordar més fort tot el que faltava.
+
+Jimy l'acompanyà fins al cotxe.
+
+Durant uns segons es van quedar drets, sense saber com acomiadar-se.
+Rebeca portava els cabells solts i Jimy no podia deixar de mirar-los.
+Li feia mal aquell detall menut, perquè sabia perfectament què significava.
+
+—Truca'm tots els dies —li va dir ell.
+
+Rebeca va intentar somriure.
+
+—Tots els dies?
+
+—Tots. Encara que siga per dir-me que no vols parlar.
+
+Ella va abaixar la mirada.
+
+—D'acord.
+
+Jimy li va agafar les mans.
+
+—I vindré a veure't quan puga.
+
+—No cal que faces el viatge si estàs amb el bar i ton pare...
+
+—Rebeca.
+
+Ella va callar.
+
+—Vindré quan puga —va repetir ell—. No has d'estar sola amb això.
+
+Rebeca va assentir, però els ulls ja li brillaven.
+
+Quan el cotxe va arrancar, Jimy es va quedar mirant-lo fins que va
+desaparéixer del passeig.
+
+Més tard, ja a Moraira, Rebeca es va quedar asseguda al llit amb el mòbil
+a la mà.
+
+La pantalla es va il·luminar.
+
+**Miquel.**
+
+El nom va aparéixer com una ferida oberta.
+
+Rebeca va deixar de respirar.
+
+El telèfon continuava sonant.
+
+A l'altra banda, en una habitació que feia olor de medicaments i parets
+fredes, Miquel sostenia el mòbil amb les dues mans. Tenia els ulls plens
+de llàgrimes i la boca tremolosa, com si cada segon que ella no responia
+li confirmara que ja havia arribat massa tard.
+
+Rebeca mirava la pantalla.
+
+Miquel mirava el seu nom.
+
+Cap dels dos deia res.
+
+Cap dels dos podia veure l'altre.
+
+Però tots dos ploraven.
+
+I el telèfon seguia sonant.
