@@ -134,6 +134,30 @@ Passava que Nico havia intentat fer-se el fort i, de sobte, ja no podia més.
 
 Els ulls se li ompliren de llàgrimes, però ell va mirar cap a un altre costat, com si encara poguera amagar-ho.
 
+—No passa res —va repetir.
+
+Però la veu li va fallar.
+
+Jasmin va veure com intentava aguantar-se. Com apretava la mandíbula. Com respirava curt. Com feia eixe esforç inútil per semblar bé davant d'ella, just quan més destrossat estava.
+
+—Nico...
+
+Ell va negar amb el cap una altra vegada.
+
+—No vull parlar.
+
+—D'acord.
+
+—No vull plorar.
+
+—D'acord.
+
+Però ja plorava.
+
+Primer una llàgrima. Després una altra. Després massa per continuar fingint.
+
+Nico es va tapar la cara amb una mà, avergonyit, com si encara pensara que estar trencat era una cosa que havia d'amagar.
+
 Jasmin no li va demanar que parlara.
 
 No li va dir que no plorara.
@@ -194,10 +218,92 @@ Nico va mirar-la.
 
 La resposta li va fer mal, però d'una manera neta. Com quan algú toca una ferida no per obrir-la, sinó per veure si encara sagna.
 
-Jasmin li va estrényer la mà.
+Van continuar caminant fins a arribar a una zona més tranquil·la, prop del mar, on quasi no passava ningú. La sorra estava freda i el soroll de les ones omplia els silencis que ells dos no sabien com trencar.
 
-—Anem.
+Jasmin es va asseure primer.
 
-I continuaren caminant per la platja, amb el Nadal esperant-los en algun lloc darrere, i amb Nico intentant aprendre, una altra vegada, que hi havia persones que no venien mai i persones que, en canvi, es quedaven al teu costat encara que tu no sabera demanar-ho.
+Nico va tardar uns segons més, com si no sabera què fer amb el seu propi cos, amb les mans, amb la tristesa. Al final es va deixar caure al seu costat.
+
+Durant una estona no parlaren.
+
+Només miraven el mar.
+
+Nico tenia els ulls rojos i la cara cansada. No era només tristesa. Era una derrota antiga, una d'aquelles que una persona arrossega durant anys i que tornen sempre en la mateixa data, amb la mateixa frase, amb el mateix pare que no ve.
+
+Jasmin el va mirar de reüll.
+
+Després va recolzar el cap contra el seu muscle.
+
+Nico va tancar els ulls un moment.
+
+Aquell gest el va calmar i el va trencar alhora.
+
+—Per què segueixes amb mi al meu costat? —va preguntar, quasi sense veu.
+
+Jasmin no es va moure.
+
+—Què?
+
+Nico va mirar el mar.
+
+—Per què no marxes com va fer ell?
+
+Jasmin va alçar el cap a poc a poc.
+
+Nico tenia la mirada perduda, però les llàgrimes li tornaven a caure.
+
+—Per què surts amb mi des de l'institut? —va continuar ell—. Per què continues? Jo... no sé què et done, Jasmin. Només problemes. Sempre problemes.
+
+Jasmin el va mirar amb una tristesa dolça.
+
+—Tu vas ser el primer a parlar-me quan el meu ex m'estropejava la vida.
+
+Nico va negar amb el cap.
+
+—Això no...
+
+—Sí —el va tallar ella—. Sí que compta.
+
+El mar va esclatar suau contra la vora.
+
+Jasmin va continuar:
+
+—Tu vas ser el primer a defensar-me. Encara que Àries, Ariel i Hèrcules també ho van fer, tu vas ser el primer que em va mirar com si jo no tinguera la culpa del que m'estava passant.
+
+Nico la va mirar.
+
+—Jasmin...
+
+—Tu em vas demostrar que encara podia estimar.
+
+Ell no va saber què fer amb aquella frase.
+
+—Ets bon noi, Nico.
+
+Nico va apartar la mirada, com si això fora massa difícil de creure.
+
+—No ho soc tant.
+
+—Per a mi sí.
+
+Jasmin va tornar a recolzar el cap contra el seu muscle.
+
+—No puc marxar perquè em vas salvar. I perquè jo, amb tu, aniria on fera falta.
+
+Nico va deixar de mirar el mar.
+
+Durant uns segons no va dir res. Només va respirar, molt lentament, com si aquella frase li haguera donat un lloc on descansar una mica.
+
+Després va recolzar la galta damunt dels cabells de Jasmin.
+
+No havia deixat de fer mal.
+
+Son pare continuava sense vindre.
+
+La ferida continuava oberta.
+
+Però Jasmin estava allí.
+
+I, per primera vegada en tot el matí, Nico no va intentar amagar que això era l'única cosa que l'estava mantenint dret.
 
 <!-- CONTINUAR ACÍ: què passa després del passeig de Nico i Jasmin -->
