@@ -10,7 +10,93 @@ Allò era el que més mal li feia.
 
 Perquè Miquel podia suportar que Rebeca estiguera enfadada. Podia suportar que li fera mala cara, que no volguera seure al seu costat, que contestara amb monosíl·labs. Però veure-la amb els cabells solts, veure com apartava les mans cada vegada que ell intentava acostar-se, era com si li diguera sense paraules que aquella part d'ells dos ja no existia.
 
-Rebeca estava a la dutxa quan ell va tornar a intentar-ho.
+Abans que Rebeca es tancara del tot al bany, Miquel ho va intentar una altra vegada.
+
+Ella estava al passadís, amb la tovallola a la mà i els cabells solts caient-li pels muscles. Miquel va veure'ls i va sentir aquella punxada coneguda.
+
+—Rebe, espera.
+
+—Ara no.
+
+—Només un moment.
+
+—He dit que ara no.
+
+Miquel va fer una passa cap a ella.
+
+—Per què no em deixes parlar?
+
+Rebeca es va girar de colp.
+
+—Perquè sempre dius el mateix.
+
+Ell va quedar-se quiet.
+
+—No és veritat.
+
+—Sí que ho és. Sempre és igual. Que ho intentaràs. Que estàs millor. Que ara sí. Que aquesta vegada serà diferent.
+
+—Aquesta vegada és diferent.
+
+Rebeca va riure sense alegria.
+
+—Clar. Com totes les altres.
+
+Aquella frase li va fer mal.
+
+—No m'ho poses així.
+
+—Com vols que t'ho pose, Miquel? —va esclatar ella—. Vols que faça com si no haguera passat res? Com si jo no haguera estat mesos esperant una telefonada? Com si no haguera plorat cada nit pensant si tu estaves viu, mort, begut, fumat o tancat en algun lloc sense voler saber res de ningú?
+
+Miquel va abaixar la mirada.
+
+—Jo també ho he passat malament.
+
+—Ja ho sé! —va cridar Rebeca—. I saps què és el pitjor? Que ho sé. Que sé que ho has passat malament i encara així estic enfadada amb tu. I em sent una merda per estar enfadada, però ho estic.
+
+—No vull que em perdones ara mateix. Només vull que em deixes estar prop.
+
+—Per a què? Per tornar a perdre't?
+
+Miquel no va saber què contestar.
+
+Rebeca tenia els ulls plens de llàgrimes, però no plorava. Era com si haguera decidit aguantar-les només per fer més mal.
+
+—Saps què he hagut de fer per no trencar-me? —va dir ella—. Imaginar que ja no estaves. Imaginar que ja t'havia perdut. Perquè si torne a esperar i després caus una altra vegada, no sé si jo també cauré darrere.
+
+—Rebeca...
+
+—No. No em digues Rebeca amb eixa veu.
+
+—És que eres la meua germana.
+
+—Doncs actua com el meu germà i no com algú que apareix només quan ja està tot destruït.
+
+Miquel va rebre la frase com un colp.
+
+—Això no és just.
+
+—No. No ho és. Res d'açò és just.
+
+Durant uns segons només es van mirar.
+
+Miquel va alçar una mà, molt a poc a poc, cap als cabells d'ella.
+
+—Puc...?
+
+Rebeca va apartar-se abans que ell arribara a tocar-la.
+
+—No.
+
+El no va sonar menut, però definitiu.
+
+Miquel va deixar caure la mà.
+
+Rebeca va entrar al bany i va tancar la porta.
+
+Després va obrir la dutxa.
+
+Miquel es va quedar davant de la porta, amb la mà encara a mig camí d'una trena que ja no podia fer.
 
 —Rebe, per favor.
 
