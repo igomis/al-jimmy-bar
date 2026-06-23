@@ -28,39 +28,17 @@ Ell va abaixar la mirada.
 
 —Necessite veure ma mare.
 
-Jasmin ho va entendre.
-
-Després de la telefonada amb son pare biològic, Nico no necessitava música, ni gent, ni una festa. Necessitava tornar a un lloc on algú l'estimara sense desaparèixer. Necessitava veure sa mare. I també necessitava veure aquell home que no era el seu pare biològic, però que sempre li havia fet de pare.
-
-El que havia estat en els sopars.
-
-En les febres.
-
-En les notes dolentes.
-
-En les bones notícies.
-
-En els dies en què Nico feia veure que no esperava cap trucada.
+Jasmin ho va entendre. Després de la telefonada amb son pare biològic, Nico no necessitava música, ni gent, ni una festa. Necessitava tornar a un lloc on algú l'estimara sense desaparèixer. Necessitava veure sa mare. I també necessitava veure aquell home que no era el seu pare biològic, però que sempre li havia fet de pare.
 
 —Vinc amb tu —va dir Jasmin.
 
 —No cal.
 
-—Sí que cal.
+—Sí que cal. No estàs en condicions d'anar sol.
 
-Nico la va mirar.
+Nico no va trobar forces per discutir.
 
-—Jasmin...
-
-—No estàs en condicions d'anar sol.
-
-Ell va voler protestar, però no va trobar forces.
-
-Jasmin li va estrényer la mà.
-
-—Primer anem a veure ta mare. Després anirem al Jimy Bar.
-
-Nico va assentir a poc a poc.
+—Primer anem a veure ta mare —va dir Jasmin—. Després anirem al Jimy Bar.
 
 —A la vesprada.
 
@@ -68,25 +46,13 @@ Nico va assentir a poc a poc.
 
 Mentrestant, Àries i Ariel també tenien el seu propi Nadal.
 
-Aquell dia dinaven a casa de la mare d'Ariel.
-
-Ariel odiava estar allí.
-
-No odiava sa mare exactament. No sempre. Però odiava aquella casa quan s'omplia de familiars que parlaven massa fort, opinaven massa i la miraven com si haver triat la música fora una forma de traïció.
+Aquell dia dinaven a casa de la mare d'Ariel. Ariel odiava estar allí. No odiava sa mare exactament, però odiava aquella casa quan s'omplia de familiars que parlaven massa fort, opinaven massa i la miraven com si haver triat la música fora una forma de traïció.
 
 En aquella família, tot girava al voltant de l'esport.
 
 O eres esportista, o et volien fora.
 
-Ariel ho havia aprés de menuda. Ho havia aprés en cada comentari, en cada mirada, en cada comparació amb cosins que corrien més, saltaven més, guanyaven més medalles o tenien un cos que aquella família considerava digne d'orgull.
-
-Ella, en canvi, cantava.
-
-I això, allí dins, semblava quasi una vergonya.
-
-—Encara estàs amb això de cantar? —li va preguntar una tia, com si li preguntara per una mania que ja hauria d'haver superat.
-
-Ariel va deixar la forqueta damunt del plat.
+—Encara estàs amb això de cantar? —li va preguntar una tia.
 
 —Sí.
 
@@ -94,17 +60,11 @@ Ariel va deixar la forqueta damunt del plat.
 
 Àries, assegut al seu costat, va notar com Ariel tensava els muscles.
 
-—Sí —va repetir ella.
-
 Un cosí va riure.
 
 —Bé, almenys el teu nuvi també és músic, no?
 
-La manera com ho va dir ja duia la burla dins.
-
-Àries va alçar la mirada.
-
-—Sí.
+—Sí —va contestar Àries.
 
 —Músic, músic... —va dir un altre familiar—. Si ha de gastar autotune, no sé jo.
 
@@ -112,119 +72,153 @@ Ariel va girar el cap de colp.
 
 —Té faringitis crònica.
 
-—Ja, però un músic de veritat no necessita eixes coses.
+La frase va eixir abans que poguera frenar-la.
 
-Àries va respirar fondo.
+Àries es va quedar quiet.
 
-No per ell.
+Odiava aquella paraula. Odiava que li recordaren una vegada i una altra el que li havien diagnosticat als dènou anys. Odiava que la faringitis crònica s'haguera convertit en una frontera entre el que ell volia ser i el que podia fer.
 
-Per Ariel.
+Per això tocava sobretot la guitarra elèctrica. Per això cantava poc. Per això l'autotune no era una broma per a ell, sinó una manera de continuar damunt de l'escenari sense trencar-se la veu del tot.
 
-Perquè sabia que, si ell explotava, després dirien que era un maleducat, que ella s'havia buscat un xic problemàtic, que tot allò de la música només portava gent rara. I Ariel acabaria pagant també la seua ràbia.
+—Ja, però un músic de veritat no necessita eixes coses —va dir un familiar.
 
-—Àries fa música —va dir Ariel, amb la veu més freda—. I la fa bé.
+Àries va notar que els ulls se li omplien. Es va alçar de colp.
 
-—Podries haver-te buscat un xic esportista —va dir una altra veu de la taula—. Algú que t'ajudara a centrar-te.
+—Perdó.
 
-Ariel va sentir que li cremaven els ulls.
+I va marxar corrent cap al bany.
 
-—Estic centrada.
+Ariel es va alçar darrere d'ell. Va agafar la guitarra d'Àries, que ell havia deixat prop de l'entrada, i el va seguir pel corredor.
 
-—En el Tercer Cel? —va preguntar algú, rient—. Eixos no arribaran molt lluny.
+—Ariel, no faces un drama —va dir algú des de la taula.
 
-Àries va tancar la mà sota la taula.
+Ella no es va girar.
 
-Ariel va notar-ho i li va posar la seua damunt.
+La porta del bany estava tancada. A dins, Àries intentava respirar sense fer soroll.
 
-No perquè ell callara.
+Ariel va tocar suau.
 
-Perquè no se sentira sol.
+—Àries... ho sento. Jo no volia dir-ho.
 
-Però, en realitat, era ell qui no podia deixar-la sola allí.
+Després d'uns segons, la porta es va obrir una mica.
 
-Àries sabia que aquella casa li feia mal. Sabia que Ariel podia aguantar moltes coses en públic, però després es trencava en silenci. Sabia que cada comentari sobre la música, sobre ell i sobre el Tercer Cel li obria una ferida que venia de lluny.
+Àries tenia els ulls rojos.
 
-Per això aquell matí no podia anar encara al Jimy Bar.
+Ariel li va passar la guitarra amb cura, com si li tornara una part d'ell que aquella taula havia intentat llevar-li.
 
-Primer havia d'estar amb ella.
+—Ho sé —va dir Àries entre llàgrimes—. I odio la teua família.
+
+—Jo també de vegades.
+
+—Si jo ja sé que no canto bé. Ja sé que soc un músic horrible.
+
+—Ei. No eres un músic horrible.
+
+—Ariel...
+
+—No. Mira'm. Què faria jo sense tu? Què faria la resta del Tercer Cel sense tu?
+
+—Jo només toque.
+
+—Només? Et confesse un secret: els esportistes guanyen medalles, però els músics de veritat sabem quan guanyem no pels premis, sinó quan veiem gent riure als nostres concerts.
+
+Àries va mirar la guitarra.
+
+—Nosaltres toquem cors, Àries. I veure com la gent disfruta perquè tu estàs a l'escenari mola. No importa que cantes amb autotune si damunt de l'escenari ho passes bé. No importa si no pots cantar com voldries. No importa si has de trobar una altra manera.
+
+—Però no cante bé.
+
+—No cantes com abans. No és el mateix.
+
+Àries va callar.
+
+Ariel va tocar suaument la guitarra.
+
+—Aquesta gent tan esportista és la meua família de sang. Però a mi també em fan plorar. També em fan pensar si faig bé perseguint els meus somnis. També em fan dubtar si de veres hauria de sortir amb un esportista, si hauria de callar, si hauria de fer el que ells volen.
+
+Àries la va mirar.
+
+—Però després et mire a l'escenari. Et veig esforçar-te tot i la faringitis. Et veig tocar, aguantar, tornar a provar. I és quan pense: val la pena esforçar-me pels meus somnis encara que la meua família em jutge. Val la pena sortir amb Àries perquè m'acompanya quan la meua família m'ataca amb preguntes.
+
+Àries va començar a plorar una altra vegada, però ara no va apartar la mirada.
+
+Ariel li va agafar la cara amb les dues mans.
+
+—Àries, tu ets el meu refugi.
+
+—No sé si puc tornar ahí fora.
+
+—No has de tornar per ells. Ens quedem ací els minuts que facen falta. Després anirem al Jimy Bar. Amb els nostres.
+
+Àries va abraçar la guitarra contra el pit.
+
+—Odio sentir-me menys músic.
+
+—Tu no eres menys músic. Eres Àries. I quan toques, jo recorde per què vull continuar cantant.
+
+Després Ariel el va abraçar. A l'altra banda de la porta, la família seguia parlant massa fort, com si res haguera passat. Però dins del bany, per primera vegada en tot el dinar, Ariel i Àries van poder respirar.
+
+Per això aquell matí no podien anar encara al Jimy Bar.
+
+Primer havien de sobreviure a aquella casa.
 
 Mario i Arnau tampoc podien arribar de matí.
 
-Ells dinaven junts, perquè les seues famílies ja estaven mig barrejades. Arnau eixia amb Maria, la germana de Mario. I Mario eixia amb Ginesta, la germana d'Arnau.
+Ells dinaven junts, perquè les seues famílies ja estaven mig barrejades: Arnau eixia amb Maria, la germana de Mario, i Mario eixia amb Ginesta, la germana d'Arnau. Ginesta també treballava fent música, i allí això no era una vergonya.
 
-Així que aquell dinar de Nadal era una d'aquelles taules on tots parlaven alhora, on sempre hi havia algú afinant una guitarra en un racó i algú dient que deixaren la música per a després de menjar.
+A més, Arnau tenia un germà menut, Stiven, de dèsset anys, que també feia música.
 
-La família d'Arnau estava plena de músics. Ginesta també treballava fent música, i allí ningú mirava estrany quan algú començava a parlar d'una cançó, d'un concert o d'una idea nova.
+Stiven es passava mig dinar parlant d'acords, ritmes i cançons noves, amb aquella il·lusió de qui encara no sap quantes vegades el món intentarà fer-li dubtar.
 
-Per a Mario i Arnau, aquell Nadal era menys dolorós, però també els lligava a casa fins a la vesprada.
+—Després anem al Jimy Bar —va dir Arnau.
 
-—Després anem al Jimy Bar —va dir Arnau, mirant el mòbil.
+—Jimy no sap res, no? —preguntà Mario.
 
-—Sí —va contestar Mario—. Jimy no sap res, no?
+—No. Rebeca vol que siga sorpresa.
 
-—Això ha dit Rebeca.
+Stiven va somriure.
 
-Mario va somriure.
+—Això serà bonic.
 
-—Li farà il·lusió.
+I cap dels tres va dir res més, perquè tots sabien que aquell any a Jimy li feia falta una cosa bonica.
 
-—Li fa falta.
+Natalia i Hèrcules dinaven amb la família de Natalia.
 
-I cap dels dos va afegir res més, perquè tots sabien que aquell any a Jimy li feien falta moltes coses.
+Hèrcules era orfe. No l'havien adoptat mai i no sabia res de la seua família. Ni noms, ni cares, ni d'on venia exactament.
 
-Natalia i Hèrcules també dinaven junts.
+Aquell dia intentava estar bé. Somreia quan tocava, contestava quan li preguntaven i feia veure que no se sentia fora de lloc.
 
-Dinaven amb la família de Natalia, perquè Hèrcules no tenia una família pròpia on tornar.
+Però la família de Natalia ho va notar.
 
-Era orfe.
+Primer ho va notar Natalia. Després sa mare. Després una tia, que va veure com Hèrcules mirava la taula plena de gent amb una tristesa que intentava amagar.
 
-No l'havien adoptat mai.
+—Hèrcules —va dir la mare de Natalia.
 
-I no sabia res de la seua família.
+Ell va alçar la mirada.
 
-Ni noms.
+—Sí?
 
-Ni cares.
+La dona es va alçar, va anar fins a ell i el va abraçar.
 
-Ni d'on venia exactament.
+Hèrcules es va quedar rígid, sense saber què fer.
 
-Hi havia dies que deia que això no li importava. Que ja estava. Que la seua família era la gent que havia triat. Però en dies com Nadal, quan les cases s'omplien de pares, mares, avis, germans i històries repetides mil vegades, el buit es notava més.
+—Ja eres de la família —li va dir ella.
 
-Natalia ho sabia.
+Durant un segon ningú va parlar.
 
-Per això no el deixava apartar-se massa.
+Després Natalia també el va abraçar. I després algú més li va posar una mà al muscle. I Hèrcules, que havia après a no esperar massa de cap casa, va notar que aquella vegada sí que li estaven fent lloc.
 
-—Estàs bé? —li va preguntar baixet, mentre la seua família discutia sobre qui havia fet millor el dinar.
+Va intentar riure, però li va tremolar la boca.
 
-Hèrcules va somriure una mica.
+—Gràcies —va dir molt baix.
 
-—Sí.
+Natalia li va agafar la mà.
 
-Natalia el va mirar sense creure-se'l del tot.
+—No has de sentir-te fora.
 
-—Després anirem al Jimy Bar.
+Hèrcules va mirar aquella família que no era seua de sang, però que aquell Nadal l'estava abraçant com si ho fora.
 
-—Ho sé.
-
-—Vindran tots.
-
-Hèrcules va mirar la taula, després a ella.
-
-—Això està bé.
-
-Natalia li va agafar la mà per davall de la taula.
-
-—No has de fer com si no et fera mal.
-
-Hèrcules va empassar saliva.
-
-—És Nadal. No vull posar-me intens.
-
-—Tu pots posar-te com necessites.
-
-Ell va abaixar la mirada.
-
-Perquè Natalia, com sempre, havia dit just el que ell no sabia demanar.
+I per primera vegada en molt de temps, el buit no va desaparèixer, però va pesar una mica menys.
 
 Així, mentre Jimy preparava el seu aniversari sense saber res, el Tercer Cel passava el migdia entre cases, taules, ferides i famílies.
 
@@ -232,9 +226,9 @@ Uns intentaven aguantar comentaris.
 
 Uns altres intentaven no trobar a faltar qui mai venia.
 
-Altres intentaven encaixar en una família que no era seua però que, almenys aquell dia, els feia lloc.
+Altres descobrien que, fins i tot sense sang compartida, una família també podia obrir els braços.
 
-I tots, d'una manera o altra, esperaven la vesprada.
+I tots esperaven la vesprada.
 
 Perquè a la vesprada anirien al Jimy Bar.
 
