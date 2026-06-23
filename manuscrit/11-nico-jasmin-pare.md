@@ -306,4 +306,104 @@ Però Jasmin estava allí.
 
 I, per primera vegada en tot el matí, Nico no va intentar amagar que això era l'única cosa que l'estava mantenint dret.
 
-<!-- CONTINUAR ACÍ: què passa després del passeig de Nico i Jasmin -->
+El mòbil de Nico va començar a vibrar dins de la butxaca.
+
+Al principi no es va moure.
+
+Encara tenia la galta damunt dels cabells de Jasmin i els ulls clavats en el mar, com si qualsevol cosa que vinguera de fora poguera trencar aquella calma tan fràgil.
+
+—No l'agafaràs? —va preguntar Jasmin.
+
+Nico va traure el mòbil sense massa ganes.
+
+Quan va veure el nom de Rebeca a la pantalla, va arrufar una mica el front.
+
+—És Rebeca.
+
+Jasmin va alçar el cap.
+
+—Agafa'l.
+
+Nico va contestar.
+
+—Rebe?
+
+A l'altra banda, la veu de Rebeca sonava cansada, però intentava fer-se ferma.
+
+—Nico, hui és l'aniversari de Jimy.
+
+—Ja ho sé.
+
+—Volia preguntar-te si tu i Jasmin voleu vindre al Jimy Bar per celebrar-ho amb ell.
+
+Nico va mirar Jasmin.
+
+—Al Jimy Bar?
+
+—Sí. Jimy sol celebrar els aniversaris amb Sky i Miquel. Però aquest any Sky està a Colòmbia, Miquel està com està, i... crec que li faria il·lusió que vinguéreu els del Tercer Cel.
+
+Jasmin, que escoltava a prop, va obrir una mica els ulls.
+
+Rebeca va continuar:
+
+—També vindran Luca, Leo, Lliris i Kiti. I Sky, abans d'anar-se'n, li va comprar un regal a Jimy. Està disposada a compartir-lo amb vosaltres, perquè siga un regal de tots.
+
+Nico va mirar el mar una altra vegada.
+
+El matí encara feia mal, però aquella trucada li va obrir una finestra xicoteta enmig del dolor.
+
+—Jimy ho sap?
+
+—No —va dir Rebeca—. No sap que estic avisant el Tercer Cel. No sap que vindreu. Vull que siga una sorpresa.
+
+Nico va respirar fondo.
+
+Després va mirar Jasmin.
+
+Ella va assentir sense dubtar.
+
+—Anirem —va dir Nico.
+
+A l'altra banda, Rebeca va deixar anar aire, com si també necessitara que alguna cosa eixira bé aquell dia.
+
+—Gràcies.
+
+—Rebe?
+
+—Sí?
+
+Nico va abaixar una mica la veu.
+
+—Estàs bé?
+
+Hi hagué un silenci curt.
+
+—No molt.
+
+Nico va tancar els ulls un moment.
+
+—Nosaltres tampoc.
+
+Rebeca no va contestar de seguida.
+
+—Aleshores vingueu —va dir finalment—. Potser hui no cal que ningú estiga bé del tot. Només cal que estiguem junts.
+
+Nico va mirar Jasmin.
+
+Ella li va agafar la mà.
+
+—D'acord —va dir ell—. Ens veiem al Jimy Bar.
+
+Quan va penjar, Nico es va quedar uns segons mirant el telèfon.
+
+—Anem? —va preguntar Jasmin.
+
+Nico va mirar el mar una última vegada.
+
+Son pare continuava sense vindre.
+
+Però aquella vegada ell sí que podia anar a algun lloc.
+
+—Anem.
+
+<!-- CONTINUAR ACÍ: arribada de Nico i Jasmin al Jimy Bar -->
