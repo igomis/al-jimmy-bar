@@ -32,7 +32,7 @@ Per això veure Marcos així la va destrossar una mica més.
 
 Era com si Colòmbia haguera d'haver sigut una escapada, un lloc on respirar diferent, i en canvi només li confirmara que la tristesa podia travessar oceans i esperar-te asseguda en un sofà.
 
-Sky es va quedar molt prop de Marcos.
+Sky es va acostar al sofà i es va asseure al costat de Marcos.
 
 No va saber què dir-li al principi. No era fàcil mirar el seu pare així, apagat, tirat al sofà, com si algú li haguera llevat les ganes de moure's. Però tampoc podia apartar-se'n. Potser perquè ella també estava passant per una cosa semblant. Potser perquè reconeixia aquella manera d'estar sense estar.
 
@@ -50,7 +50,7 @@ Va intentar somriure.
 
 No li va eixir del tot.
 
-Després va mirar Sky.
+Després va mirar Sky, asseguda al seu costat.
 
 —Sky...
 
@@ -62,11 +62,9 @@ Els tios i les ties ja coneixien Sky. També coneixien Miquel. No era la primera
 
 Alguns dels nuvis de les germanes de Marcos, en canvi, no la coneixien tant. La miraven amb curiositat, intentant situar-la dins de l'arbre familiar, com si en aquella casa tot el món haguera d'ocupar un lloc exacte.
 
-Sky va saludar tothom amb una energia una mica forçada, però amable.
+Sky va saludar tothom amb una energia una mica forçada, però amable, sense separar-se massa de Marcos.
 
-—Hola, jo soc Sky.
-
-Ho va dir a la mare de Marcos, a les germanes, als nuvis, a qualsevol persona que apareixia per una porta o mirava des de la cuina. Alguns li contestaren amb afecte, altres amb un somriure cansat. Sky va notar que aquella família no estava exactament contenta, però sí pendent. Pendent de Marcos. Pendent d'Emma. Pendent de no dir massa fort el que tots ja sabien.
+La mare de Marcos li va acaronar el braç en passar pel seu costat. Una de les ties li va somriure com si encara la recordara més xicoteta. Sky va respondre com va poder, amb un somriure que li tremolava una mica.
 
 Aleshores una de les ties, intentant fer conversa, va somriure.
 
@@ -112,7 +110,7 @@ Emma no va dir res, però tampoc la va parar.
 
 Va fer una pausa i va abaixar un poc la veu.
 
-—Leo no parla gaire, la veritat. Escriu i dibuixa com si tot el que no diu ho guardara allí.
+—Leo no parla gaire, la veritat. Escriu com si tot el que no diu ho guardara allí.
 
 Sky va somriure una mica, pensant en ell.
 
@@ -139,5 +137,49 @@ No va riure.
 Però va mirar Sky una mica més despert que abans.
 
 I en aquella casa plena de gent, amb la televisió encara encesa i la tristesa asseguda al sofà, aquella mínima reacció ja va semblar alguna cosa.
+
+Més tard, quan les veus de la casa tornaren a omplir-ho tot i algú començà a parlar de menjars, de llocs bonics i de coses que Sky podria contar-li a Leo, ella va continuar asseguda al costat de Marcos.
+
+Cada vegada li costava més sostenir el somriure.
+
+Li feia mal veure'l així. Li feia mal perquè era son pare, però també perquè el seu dolor s'assemblava massa al d'ella. Sky havia vingut buscant un refugi i havia trobat el refugi trencat.
+
+Marcos va moure un braç molt a poc a poc.
+
+No va dir res.
+
+Només li va deixar un lloc.
+
+Sky es va recolzar contra ell, primer amb una tensió estranya, després com si el cos li recordara que allí abans havia estat segura.
+
+Va intentar aguantar.
+
+De veritat que ho va intentar.
+
+Però les llàgrimes li van començar a caure en silenci.
+
+Marcos també tenia els ulls humits. No va preguntar-li què passava. Potser perquè ja ho sabia. Potser perquè ell tampoc hauria sabut respondre si li ho preguntaven.
+
+Només la va envoltar amb el braç, agafant-la per la cintura com quan era més xicoteta i es quedava adormida al seu costat.
+
+Sky va tancar els ulls.
+
+Va plorar una estona contra ell, sense fer soroll, fins que el cansament li va guanyar a la tristesa.
+
+Marcos també va tancar els ulls.
+
+Els dos es van quedar adormits al sofà, abraçats, amb les llàgrimes encara marcades a la cara, pensant fins i tot en somnis en tot allò que no volien pensar.
+
+Emma els va veure així des de la porta.
+
+No va dir res.
+
+Va agafar una manta, els va tapar amb cura i va apagar una mica la veu de la casa tancant la porta del menjador a mitges.
+
+Després es va quedar mirant-los un moment més, amb els ulls brillants.
+
+I per primera vegada des que havien arribat, va entendre que aquell viatge no anava a curar res de colp.
+
+Però potser podia començar a posar algunes peces al seu lloc.
 
 <!-- CONTINUAR ACÍ: desenvolupar la família de Marcos i què li conten a Sky sobre Colòmbia -->
