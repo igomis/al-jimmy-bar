@@ -262,9 +262,7 @@ A l'altra banda, la veu de Luca sonava ronca i cansada.
 
 —Estàs pitjor?
 
-Ell va tossir abans de poder contestar.
-
-Una tos llarga, seca, d'aquelles que deixen el pit obert.
+Ell va tossir abans de poder contestar. Una tos llarga, seca, d'aquelles que deixen el pit obert.
 
 —Continue trobant-me malament —va dir—. Tinc febra. I molta tos.
 
@@ -282,13 +280,11 @@ Kiti es va quedar quieta.
 
 —Vull anar a l'aniversari del meu germanastre.
 
-La veu li tremolava, però no era només per la febra.
-
-—Luca, tens febra. I no és poca cosa si quasi no pots parlar sense tossir.
+—Luca, tens febra. T'estic escoltant respirar i sembles mig mort.
 
 —No em passa res.
 
-—No em mentis. T'estic escoltant respirar.
+—No em mentis.
 
 Luca va intentar riure, però la rialla es va convertir en una altra tos.
 
@@ -296,11 +292,7 @@ Luca va intentar riure, però la rialla es va convertir en una altra tos.
 
 —Un refredat que et té amb veu de mort i tossint cada tres paraules.
 
-—Kiti...
-
-—No.
-
-—És l'aniversari de Jimy.
+—És Jimy.
 
 Això la va fer callar un segon.
 
@@ -318,13 +310,7 @@ Kiti va tancar els ulls.
 
 —Ara?
 
-—Ara.
-
-—Per anar al Jimy Bar?
-
-—Per anar a ta casa.
-
-Luca va callar.
+—Ara. Però per anar a ta casa, no directament al Jimy Bar.
 
 —Kiti...
 
@@ -352,39 +338,9 @@ Luca va callar.
 
 Kiti va suavitzar una mica la veu.
 
-—Escolta'm. Vaig a ta casa. Et pose el termòmetre, beus alguna cosa calenta, et prens el que toque i descanses una estona més. Si després estàs un poc millor, anem al Jimy Bar. Però no ixes ara.
-
-—Una estona quant és?
-
-—La que jo diga.
-
-—Això no és just.
-
-—Tindre febra tampoc.
-
-Luca va tornar a tossir.
-
-Aquesta vegada Kiti no va dir res fins que ell va acabar.
-
-—Veus? —va dir després—. Així no pots anar enlloc.
-
-—Puc.
-
-—Pots ser molt tossut, això sí.
-
-—Vindràs?
-
-—Ja estic agafant les claus.
-
-—Kiti.
-
-—Què?
-
-La veu de Luca va eixir més baixa.
+—Escolta'm. Vaig a ta casa. Et pose el termòmetre, beus alguna cosa calenta, descanses una estona més i després, si estàs un poc millor, anem al Jimy Bar.
 
 —No em deixes adormir-me i perdre-m'ho.
-
-Ella va quedar-se uns segons sense contestar.
 
 —No deixaré que t'ho perdes si puc evitar-ho.
 
@@ -440,9 +396,7 @@ Kiti es va asseure al seu costat.
 
 —També ho sé.
 
-Ell va tossir una altra vegada i es va doblegar una mica cap avant.
-
-Kiti li va fregar l'esquena fins que va poder respirar millor.
+Ell va tossir una altra vegada i es va doblegar una mica cap avant. Kiti li va fregar l'esquena fins que va poder respirar millor.
 
 —Per això mateix no vas a presentar-te allí fet pols i preocupar-lo més.
 
@@ -480,10 +434,100 @@ Luca va tancar els ulls, però va murmurar:
 
 —No me'l vull perdre.
 
-Kiti es va quedar al seu costat.
+Kiti es va gitar al seu costat, damunt de la manta, sense llevar-li espai. Li va posar una mà al front i després al coll, comprovant-li la febra amb aquella preocupació que intentava dissimular fent-se la dura.
 
 —No te'l perdràs si depén de mi.
 
-I, per primera vegada des que havia telefonat, Luca va deixar de resistir-se una mica.
+—Et quedaràs ací?
 
-<!-- CONTINUAR ACÍ: Kiti espera amb Luca i decideixen quan anar al Jimy Bar -->
+—Sí.
+
+—Fins que m'alce?
+
+—Fins que deixes de semblar un fantasma tossint.
+
+Luca va somriure molt poc.
+
+—Això pot tardar.
+
+—Doncs tardarà.
+
+Ell va intentar respondre, però el cansament li va guanyar. Es va quedar adormit abans d'acabar de dir una altra frase.
+
+Kiti es va quedar una estona al seu costat, quieta, escoltant-li la respiració. Cada pocs minuts li tocava el front, li apartava els cabells humits de suor i comprovava que no tremolara massa.
+
+Quan va veure que respirava una mica més tranquil, es va alçar sense fer soroll.
+
+—Ara torne —va murmurar, encara que Luca dormia.
+
+Va baixar a la cuina.
+
+No sabia si era bona idea portar-lo al Jimy Bar, però també sabia que, si Luca es despertava i ella li deia que no anirien, li trencaria alguna cosa més que la il·lusió. Així que va decidir preparar-ho tot per si, en despertar, ell encara volia anar.
+
+Va buscar una cassola, va encendre el foc i li va cuinar una sopa calenta. Una sopa senzilla, d'aquelles que no curen res de colp però fan que el cos recorde que algú l'està cuidant.
+
+Mentre remenava, va mirar cap al sostre, com si poguera veure Luca adormit a l'habitació.
+
+—Eres un tossut —va dir en veu baixa.
+
+Però no sonava enfadada.
+
+Quan la sopa va estar feta, la va posar en un tàper i el va tancar bé. Després va pujar de nou.
+
+Luca continuava dormint.
+
+Kiti es va quedar a la porta mirant-lo uns segons. Tenia la cara encara roja, però semblava una mica menys tens.
+
+—Anirem —va murmurar—. Però anirem a la meua manera.
+
+No el va despertar.
+
+Li va posar una jaqueta. Després una altra. Li va embolicar millor el coll amb una bufanda i va comprovar que continuara dormit. Luca va fer un so menut, mig queixa, mig tos, però no va obrir els ulls.
+
+—Shh —li va dir ella—. Dorm.
+
+Després el va agafar en braços amb compte.
+
+Luca pesava més del que pareixia, però Kiti no el va soltar. El va acomodar contra ella, li va cobrir millor l'esquena amb les jaquetes i va agafar també el tàper amb la sopa.
+
+A la porta, ell va mig obrir els ulls.
+
+—Kiti...?
+
+—Sí.
+
+—Anem?
+
+—Anem.
+
+—Al Jimy Bar?
+
+—Sí. Però tu vas embolicat com una croqueta i quan arribem et menges la sopa.
+
+Luca va intentar riure, però només li va eixir un sospir.
+
+—Croqueta...
+
+—No protestes. Vas en braços, amb febra i amb sopa. No tens dret a opinar.
+
+—Gràcies.
+
+Kiti va baixar la mirada cap a ell.
+
+—Després em dones les gràcies si no em fas tornar a mitjan camí.
+
+—Ho intentaré.
+
+—Això no m'agrada.
+
+—Ho promet.
+
+Kiti va ajustar-li una de les jaquetes i va eixir de casa amb ell en braços i el tàper de sopa ben subjectat.
+
+Perquè Luca volia anar.
+
+I ella, si ell volia anar, el portaria.
+
+Però cuidant-lo cada passa del camí.
+
+<!-- CONTINUAR ACÍ: Kiti arriba al Jimy Bar amb Luca en braços i la sopa -->
