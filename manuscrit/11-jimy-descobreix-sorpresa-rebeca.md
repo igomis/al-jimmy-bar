@@ -2,7 +2,13 @@
 
 Ja havien dinat.
 
-La casa del Jimy Bar, que al matí havia estat plena de silencis estranys, començava a omplir-se d'una altra cosa.
+Miquel era a la cuina, intentant concentrar-se en la tarta d'aniversari.
+
+No estava bé. Encara estava fràgil, encara tenia la cara cansada i encara li tremolaven una mica les mans. Però fer una tarta li donava una cosa concreta a fer. Una cosa que coneixia. Una cosa que podia mesurar, barrejar, controlar.
+
+Així que, mentre al menjador la casa del Jimy Bar començava a omplir-se de gent, Miquel es va quedar a la cuina amb la farina, els ous i el sucre, fent allò que tantes vegades havia fet per Jimy.
+
+La casa, que al matí havia estat plena de silencis estranys, començava a omplir-se d'una altra cosa.
 
 Veus.
 
@@ -40,7 +46,9 @@ Jimy es va girar de colp.
 
 —Àries?
 
-—Què passa? —Àries va somriure—. No podem vindre a felicitar-te?
+Àries li va donar una palmada a l'esquena.
+
+—Què passa? No podem vindre a felicitar-te?
 
 Ariel li va donar dos besos.
 
@@ -54,13 +62,13 @@ Ariel li va donar dos besos.
 
 —És que no s'ho creu —va dir Rebeca des de prop de la taula.
 
-Nico se li acostà després.
+Nico se li acostà després i li va fer un joc de punys.
 
 —Ei. Bon aniversari.
 
 —Gràcies, Nico.
 
-Jasmin li va somriure amb dolçor.
+Jasmin li va fer una abraçada suau.
 
 —Rebeca ens ha dit que et faria il·lusió que vinguérem.
 
@@ -72,11 +80,13 @@ Rebeca va fer com si estiguera massa ocupada ordenant uns gots.
 
 —Jo no he dit res estrany.
 
-—Has dit que si no veníem et sabria greu —va dir Mario.
+Mario li va passar un braç pels muscles.
+
+—Ha dit que si no veníem et sabria greu.
 
 —Mario! —va protestar Rebeca.
 
-Arnau va riure.
+Arnau va riure i li va donar una palmada a Jimy.
 
 —I també ha dit que Jimy es posaria molt roig.
 
@@ -92,7 +102,27 @@ Jimy es va posar encara més roig.
 
 Tots van riure, i per primera vegada des que havien entrat, la casa va sonar com una casa plena de gent que volia estar allí.
 
-Mario li va donar una palmada al muscle.
+Per a Jimy, aquell aniversari ja era el millor de tots.
+
+Els altres anys, normalment, eren Rebeca, Sky i Miquel.
+
+I això ja havia estat molt per a ell.
+
+Però aquell any hi havia més gent. Hi havia el Tercer Cel. Hi havia els seus cantants preferits entrant a sa casa, saludant-lo com si ell fora important, donant-li palmades a l'esquena, abraçades, jocs de punys, somriures i bromes.
+
+Per uns instants va trobar a faltar Sky.
+
+Li va fer un buit menut al pit pensar que ella era a Colòmbia, que aquell dia no podia estar allí amb ell com altres anys.
+
+Però després va mirar al voltant i es va quedar sense aire.
+
+Tindre tota aquella gent allí era brutal.
+
+Massa gran.
+
+Massa bonic.
+
+Mario li va donar una altra palmada al muscle.
 
 —No faces eixa cara, Jimy. Ja hem parlat més vegades. No som famosos que han baixat del cel.
 
@@ -132,13 +162,19 @@ Jimy es va quedar un segon sense resposta.
 
 —Sobretot si hi ha tarta —va dir Natalia.
 
-Jimy va mirar cap a la cuina, com si recordara de colp que encara faltava preparar coses.
+Jimy va mirar cap a la cuina.
 
-—La tarta... sí. He de mirar això.
+—La tarta... Miquel està fent-la.
 
-—Tranquil —va dir Àries—. Hem vingut a celebrar-te, no a fiscalitzar-te la rebosteria.
+El nom de Miquel va quedar un instant en l'aire, perquè tots sabien que no era només una tarta.
 
-—Això ho faré jo —va dir Nico amb un mig somriure.
+Era Miquel intentant estar.
+
+Intentant fer una cosa bona.
+
+Intentant no trencar-se mentre la casa s'omplia.
+
+—Aleshores serà bona —va dir Nico, amb un mig somriure.
 
 Jasmin li va donar un colp suau al braç.
 
@@ -234,9 +270,9 @@ Després li va tornar el bes.
 
 —Jo fingiré sorpresa —va dir Àries.
 
-Ariel li va donar un colp suau.
+Ariel va mirar Rebeca i Jimy amb un somriure tendre.
 
-—Calla.
+—No cal fingir-la. Fan molt bona parella.
 
 I en aquell moment, José ho va veure.
 
@@ -302,11 +338,13 @@ Jimy es va posar roig com una tomaca.
 
 Rebeca també es va posar roja, però no va negar-ho.
 
-Ariel va somriure.
+Ariel, al costat d'Àries, li va agafar la mà amb cura.
 
-—Mira, per una vegada Àries ha dit una cosa bonica sense autotune.
+No va fer cap broma.
 
-—Gràcies, crec —va dir Àries.
+Aquell matí ja li havien fet massa mal amb paraules, i ella ho sabia millor que ningú.
+
+Només li va acariciar els dits amb el polze, com dient-li que estava allí, que aquesta vegada ningú anava a usar la seua veu ni la seua música per fer-li mal.
 
 José va riure, emocionat.
 
@@ -367,6 +405,10 @@ Primer el Tercer Cel allí.
 Després Rebeca.
 
 Després son pare abraçant-los.
+
+Després Miquel a la cuina, fent-li la tarta encara que estava destrossat.
+
+I també Sky, absent, però present en el buit que li deixava pensar-la.
 
 Potser no era un Nadal perfecte.
 
