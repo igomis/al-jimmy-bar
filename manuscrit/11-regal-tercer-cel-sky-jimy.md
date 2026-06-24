@@ -30,19 +30,7 @@ La que aquell any no podia estar allí perquè havia anat a Colòmbia a veure so
 
 Jimy va obrir la caixa amb molta cura.
 
-El primer que va veure va ser roba.
-
-Una camisa de màniga curta blanca, amb una ratlla de color blau marí al coll.
-
-Una jaqueta de quadres taronja, groga i blanca.
-
-Un pantaló curt blau i daurat.
-
-Unes cintes de punxes.
-
-Un collar de calavera.
-
-Maquillatge fosc.
+El primer que va veure va ser roba: una camisa de màniga curta blanca amb una ratlla blau marí al coll, una jaqueta de quadres taronja, groga i blanca, un pantaló curt blau i daurat, cintes de punxes, un collar de calavera i maquillatge fosc.
 
 Jimy ho anava traient tot com si cada peça fora una part d'un personatge que ell encara no sabia que podia ser.
 
@@ -188,9 +176,17 @@ Jimy va mirar la carta una altra vegada.
 
 —Però jo no estic al vostre nivell.
 
-—Això ho decidirem nosaltres —va dir Natalia.
+—Això no és una resposta —va dir Natalia.
 
-—No —va corregir Jasmin amb suavitat—. Això ho decidiràs tu.
+—És una excusa —afegí Mario.
+
+—Una excusa molt típica de Jimy —va dir Arnau.
+
+Jimy va abaixar la mirada, tímid.
+
+—Jo no he dit que no.
+
+—Tampoc has dit que sí —va dir Jasmin, amb suavitat.
 
 Hèrcules va somriure.
 
@@ -216,7 +212,115 @@ Després va assentir.
 
 —No ho sé.
 
-Tots van riure una mica, però ningú va fer broma de més.
+El Tercer Cel va esperar.
+
+No el pressionaven.
+
+Però el miraven com si de veritat volgueren escoltar la resposta.
+
+Jimy va obrir la boca, però no li va eixir res.
+
+Rebeca va mirar-lo i va entendre aquell silenci.
+
+—Jimy vol cantar amb vosaltres des que us va descobrir —va dir ella.
+
+Jimy es va girar cap a ella de colp.
+
+—Rebe!
+
+Rebeca no va apartar la mirada.
+
+—És veritat.
+
+—No calia dir-ho així.
+
+—Sí que calia. Perquè si no, faràs com sempre i diràs que no estàs preparat, que no estàs al nivell, que segur que hi ha algú millor.
+
+Jimy es va posar roig fins a les orelles.
+
+—Jo no...
+
+—Sí —va dir Rebeca, més dolça—. Sí que vols.
+
+El menjador es va quedar un segon en silenci.
+
+Després Àries va alçar els braços.
+
+—Ho sabia!
+
+Ariel va fer un bot menut.
+
+—Jimy!
+
+Mario va cridar:
+
+—Tenim fitxatge!
+
+—Encara no ha dit que sí —va advertir Jasmin, però ja somreia molt.
+
+Nico va mirar Jimy.
+
+—Digues-ho tu. No deixes que Rebeca ho diga per tu.
+
+Jimy va mirar la guitarra roja, la carta de Sky i tots ells.
+
+Després va mirar Rebeca.
+
+Ella només li va agafar la mà.
+
+Jimy va respirar fondo.
+
+—Sí —va dir finalment.
+
+La paraula li va eixir baixa, quasi tímida.
+
+—Què? —va dir Arnau, posant-se una mà a l'orella—. No t'hem sentit.
+
+Jimy va riure, roig com una tomaca.
+
+—Sí. Vull cantar amb vosaltres.
+
+Aleshores el Tercer Cel va esclatar.
+
+Àries el va abraçar amb força.
+
+Ariel va aplaudir.
+
+Mario va fer un crit de victòria.
+
+Arnau va començar a fer veure que tocava una bateria invisible.
+
+Natalia va abraçar Jasmin.
+
+Hèrcules li va donar una palmada a Jimy que quasi el va fer perdre l'equilibri.
+
+Nico va somriure, d'aquella manera seua que no feia massa soroll però ho deia tot.
+
+—Benvingut —va dir Nico.
+
+Jimy va abaixar la mirada, desbordat.
+
+—Encara no soc un dels vostres.
+
+Jasmin li va posar una mà al braç.
+
+—Això ja ho veurem.
+
+Àries va assenyalar la guitarra.
+
+—De moment, tens guitarra, roba, carta i una invitació.
+
+—Només falta que no et desmaies —va dir Mario.
+
+—Mario —va renyar Natalia.
+
+—Què? Està molt roig.
+
+Jimy es va tapar la cara amb una mà.
+
+—Mare meua.
+
+Rebeca va riure baixet.
 
 Aquell regal no era només roba.
 
