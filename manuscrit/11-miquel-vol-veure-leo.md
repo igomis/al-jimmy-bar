@@ -18,9 +18,7 @@ I el va veure.
 
 Miquel estava recolzat a la paret, pàl·lid, amb una mà tapant-se la boca i les llàgrimes caient-li igualment pels ulls.
 
-Rebeca es va quedar quieta.
-
-—Has escoltat alguna cosa?
+—Has escoltat alguna cosa? —va preguntar Rebeca.
 
 Miquel va baixar la mà a poc a poc.
 
@@ -29,8 +27,6 @@ Miquel va baixar la mà a poc a poc.
 La veu li va eixir quasi sense aire.
 
 —Tot.
-
-Rebeca va tancar els ulls un segon.
 
 —Miquel...
 
@@ -54,19 +50,13 @@ Miquel va empassar saliva.
 
 —Leo?
 
-Ell va mirar cap a la cuina, sense força per sostindre massa la mirada.
-
 —Digues-li que no cal que em mire. Ni que em parle. Però que vull veure'l uns segons.
 
-Rebeca no sabia si això era bona idea.
-
-En realitat, quasi tot aquell dia semblava una mala idea.
-
-Però Miquel ho havia demanat amb una veu tan xicoteta que no va poder negar-s'hi.
+Rebeca no sabia si això era bona idea. En realitat, quasi tot aquell dia semblava una mala idea. Però Miquel ho havia demanat amb una veu tan xicoteta que no va poder negar-s'hi.
 
 —D'acord.
 
-El va agafar amb cura i el va portar de nou a l'habitació. Miquel caminava malament, com si cada passa li costara més del que volia reconéixer. Quan arribaren al llit, Rebeca l'ajudà a gitar-se i li apartà els cabells de la cara.
+El va portar de nou a l'habitació. Miquel caminava malament, com si cada passa li costara més del que volia reconéixer. Quan arribaren al llit, Rebeca l'ajudà a gitar-se i li apartà els cabells de la cara.
 
 —No t'esforces més.
 
@@ -82,39 +72,31 @@ Leo continuava al mateix lloc, però ja no semblava tan segur. Tenia la mirada b
 
 Ell va alçar els ulls.
 
-—Què passa?
+—Què.
 
 —Miquel vol veure't.
 
-Leo es va tensar de seguida.
+Leo es va tensar.
 
-—No crec que siga bona idea.
+—No.
 
-—Jo tampoc.
+—Ho ha demanat ell.
 
-Això el va sorprendre.
+—No.
 
-Rebeca va continuar:
+—Diu que no cal que el mires ni que li parles. Només vol veure't uns segons.
 
-—Però ho ha demanat ell. Diu que no cal que el mires ni que li parles. Només vol veure't uns segons.
+Leo va apretar els punys.
 
-Leo va quedar-se en silenci.
-
-—No estic segur de poder...
+—No puc.
 
 —No et demane que sigues perfecte —va dir Rebeca—. Només que no li faces més mal.
 
 Leo va respirar fondo.
 
-Després va assentir.
-
 —D'acord.
 
-No estava convençut.
-
-Ni de lluny.
-
-Però va anar.
+No estava convençut. Ni de lluny. Però va anar.
 
 Rebeca el va conduir fins a l'habitació. Jimy es va quedar a la porta del corredor, sense atrevir-se a entrar, amb la culpa escrita a la cara.
 
@@ -126,109 +108,137 @@ No li va eixir.
 
 —Hola —va dir Miquel.
 
-Leo no va contestar al principi.
+Leo no va contestar.
 
 Rebeca va mirar-lo amb una advertència silenciosa.
 
-—Hola —va dir ell finalment.
+—Hola —va dir ell, sec.
 
 Miquel va abaixar la mirada.
 
 —No cal que t'acostes.
 
-Leo es va quedar al llindar de la porta.
+Leo es va quedar al llindar.
 
-—D'acord.
+—Bé.
 
 —Ni que em mires si no pots.
 
-Leo va empassar saliva.
+—Puc.
 
-—No és que no puga.
+La resposta va eixir massa forta.
 
-Miquel va fer una rialla trista.
+Leo va tancar els ulls un segon, com si intentara no cridar.
 
-—Sí que pots dir-ho. Hui ja m'han dit coses pitjors.
+Però no sabia fer-ho.
 
-Leo va apartar la mirada.
+No amb Miquel. No amb aquella olor de fum que encara li semblava notar encara que potser ja no hi era. No amb tot el que el seu cos recordava abans que ell poguera pensar.
 
 Miquel va respirar amb dificultat.
 
 —He escoltat el que has dit.
 
-Rebeca va tancar els ulls.
+Leo va apretar la mandíbula.
 
-Leo no va dir res.
+—No volia.
 
-—No sé si eixiré del centre —va dir Miquel—. De veritat que no ho sé. Hi ha dies que jo tampoc m'ho crec.
+—Ja.
 
-La veu li tremolava.
+—No volia que ho escoltares —va dir Leo, més fort.
+
+Miquel va tremolar, però continuà parlant.
+
+—No sé si eixiré del centre. De veritat que no ho sé. Hi ha dies que jo tampoc m'ho crec.
+
+Leo no va respondre.
 
 —Però no vull ser ton pare.
 
 Leo va alçar la mirada de colp.
 
-Miquel tenia els ulls plens de llàgrimes.
+—No digues això.
+
+Ho va dir cridant.
+
+Miquel va tancar els ulls un instant.
 
 —No vull ser el motiu pel qual mires a una persona i només veus fum. No vull fer-li això a Rebeca. Ni a Sky. Ni a ningú.
 
-Leo va apretar els llavis.
+—Calla.
 
-—Jo no...
+Rebeca va fer una passa endavant.
 
-—No t'estic demanant que em perdones —va dir Miquel—. Ni que em cregues. Ni que em tractes bé si no pots. Només volia dir-te que ho sento.
+—Leo...
 
-Leo va quedar-se quiet.
+—He dit que calle!
 
-Miquel va mirar la manta.
+El crit va omplir l'habitació.
+
+Leo es va quedar glaçat després de sentir-se a si mateix. Havia intentat no fer-li mal, però el crit ja havia eixit. Era sempre igual: volia controlar-se, però quan el tema era un centre, el fum o son pare, el cos li responia abans que el cap.
+
+—Perdó —va dir de seguida, quasi sense veu.
+
+Miquel el mirava sense ràbia. Això encara feia més mal.
+
+—No passa res.
+
+—Sí que passa! —va cridar Leo, i després es va mossegar el llavi—. Passa. Jo... no puc fer-ho bé.
+
+—No t'estic demanant que ho faces bé.
+
+—Doncs què vols?
+
+—Dir-te que ho sento.
+
+Leo va negar amb el cap.
+
+—No.
 
 —Ho sento per Sky. Ho sento pel fum. Ho sento per haver-te recordat coses que no volies recordar.
 
-La veu se li va trencar.
+—No.
 
-—I ho sento perquè, si em mires i veus algú perdut, potser tens raó. Però encara estic intentant no perdre'm del tot.
+—Leo...
 
-Rebeca es va acostar al llit i li va agafar la mà.
+—No! —va cridar ell—. No em faces això.
 
-Leo continuava a la porta, molt quiet.
+Miquel va callar.
 
-Per primera vegada no semblava estar mirant Miquel amb rebuig.
+Leo respirava massa ràpid.
 
-Semblava estar intentant mirar-lo d'una altra manera.
+—No em demanes que et veja com una persona si encara estic intentant no veure mon pare en tu.
 
-Encara no li eixia.
+La frase va quedar suspesa.
 
-Però ho intentava.
+Miquel va abaixar la mirada.
 
-—No sé què dir —va murmurar Leo.
+—D'acord.
 
-Miquel va assentir, amb els ulls mig tancats.
+Rebeca va agafar la mà de Miquel.
 
-—No cal.
+Leo va obrir la boca, però només li va eixir una paraula:
 
-—Jo tampoc volia fer-te mal.
+—Perdó.
 
-Miquel va mirar-lo.
+Miquel va assentir amb els ulls mig tancats.
 
-—Ja.
+—No cal que digues res més.
 
-No era un perdó complet.
+—No sé.
 
-No era una reconciliació.
+Era un monosíl·lab trencat, però aquesta vegada no era un atac. Era una rendició.
 
-Però era una paraula que no tancava la porta.
+—Jo tampoc —va dir Miquel.
 
 Leo va fer una passa enrere.
 
 —Descansa.
 
-Miquel va assentir.
+Miquel el va mirar.
 
 —Tu també.
 
-Leo va quedar-se un segon més a la porta.
-
-Després se'n va anar.
+Leo no va respondre. Només va eixir de l'habitació amb la cara rígida i els ulls massa oberts.
 
 Rebeca va mirar Miquel.
 
@@ -244,4 +254,68 @@ Rebeca va seure al costat del llit.
 
 I aquella vegada, Miquel sí que va intentar creure-la.
 
-<!-- CONTINUAR ACÍ: Leo torna a la cuina i Jimy assumeix la culpa de la mala idea -->
+Mentrestant, a casa de Kiti, el mòbil va començar a vibrar damunt de la taula.
+
+Kiti el va agafar de seguida quan va veure el nom de Luca.
+
+—Luca?
+
+A l'altra banda, la veu de Luca sonava ronca i cansada.
+
+—Kiti...
+
+—Estàs pitjor?
+
+Ell va tossir abans de poder contestar.
+
+Una tos llarga, seca, d'aquelles que deixen el pit obert.
+
+—Continue trobant-me malament —va dir—. Tinc febra. I molta tos.
+
+—Aleshores queda't al llit.
+
+—No.
+
+—Luca.
+
+—Busca'm ja.
+
+Kiti es va quedar quieta.
+
+—Què?
+
+—Vull anar a l'aniversari del meu germanastre.
+
+La veu li tremolava, però no era només per la febra.
+
+—Luca, si tens febra...
+
+—Kiti, per favor. No vull faltar.
+
+Ella va tancar els ulls un segon.
+
+Sabia que Luca estava malament.
+
+Però també sabia què significava Jimy per a ell.
+
+—D'acord —va dir finalment—. Vaig a buscar-te. Però et porte una jaqueta grossa i si empitjores tornem.
+
+Luca va fer una rialla fluixa que va acabar en tos.
+
+—D'acord.
+
+Kiti ja s'estava alçant.
+
+—No et mogues.
+
+—No puc massa.
+
+—Millor.
+
+Va penjar, va agafar les claus i va eixir quasi corrent.
+
+Perquè el Nadal estava sent un desastre per a massa gent.
+
+Però encara hi havia coses a les quals s'havia d'arribar, encara que fora amb febra.
+
+<!-- CONTINUAR ACÍ: Kiti recull Luca i van cap al Jimy Bar -->
