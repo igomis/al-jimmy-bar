@@ -10,33 +10,9 @@ Miquel estava tan cansat que Jimy li havia deixat una de les habitacions del bar
 
 Rebeca, en canvi, no parava quieta. Ajudava Jimy a netejar, a parar taula, a moure cadires, a revisar que hi haguera gots suficients, a ordenar plats, a encarregar-se de tot un poc. Era la seua manera de no pensar massa.
 
-—Rebe, seu cinc minuts —li va dir Jimy.
-
-—No puc.
-
-—Sí que pots.
-
-—No vull.
-
-Jimy no va insistir. La coneixia prou per saber que, aquell dia, parar era pitjor que cansar-se.
-
 Una estona després, la porta es va obrir.
 
 Primer va entrar la mare de Luca i Leo. Després Leo. I darrere d'ells, Úrsula, la germana bessona de Kiti.
-
-Leo va mirar el lloc amb aquella calma seua que mai acabava de ser calma. Semblava que ho observava tot: les taules, les cadires, el passadís, les portes, les olors que venien de la cuina, el soroll dels plats, les mans de Rebeca movent-se massa ràpid.
-
-—Hola —va dir Rebeca, intentant somriure.
-
-La mare de Leo li va fer dos besos.
-
-—Com estàs?
-
-Rebeca va mentir amb massa rapidesa.
-
-—Bé.
-
-Leo no va dir res.
 
 Luca no havia vingut amb ells. Estava constipat. Li havia escrit a Kiti dient-li que es trobava malament, que el deixara dormir una estona i que més tard li telefonaria.
 
@@ -66,17 +42,11 @@ Però ell ja havia mirat Leo.
 
 Leo va parpellejar.
 
-—Vaig llegir un llibre de cuina quan tenia cinc anys.
+—Vaig llegir un llibre de cuina quan tenia cinc anys. Encara recorde les quantitats exactes de quasi tot.
 
-Jimy va somriure, pensant que allò era una bona notícia.
+—Perfecte —va dir Jimy.
 
-—Perfecte.
-
-—Encara recorde les quantitats exactes de quasi tot —va afegir Leo.
-
-—Encara més perfecte.
-
-Rebeca va tornar a mirar Jimy, ara amb més advertència.
+Rebeca va tornar a mirar-lo, ara amb més advertència.
 
 —Jimy, no sé si...
 
@@ -104,20 +74,6 @@ No sabia per què, però ho notava.
 
 Leo va mirar els ingredients damunt del banc.
 
-—Si voleu una tarta decent, eixa quantitat de farina està malament.
-
-Jimy va somriure.
-
-—Veus? Per això et necessite.
-
-I els va deixar a tots dos a la cuina.
-
-Miquel va agafar un bol.
-
-—Tu dius les quantitats i jo ho faig?
-
-Leo va assentir, sense mirar-lo massa.
-
 —Dos-cents quaranta grams de farina. Cent vint de sucre. Tres ous. No dos. Tres.
 
 —D'acord.
@@ -129,8 +85,6 @@ Miquel va intentar somriure una mica.
 —Sí.
 
 La resposta va ser seca.
-
-Miquel va callar.
 
 Durant uns minuts treballaren així: Leo donant instruccions exactes, Miquel obeint amb les mans una mica tremoloses. La cuina feia olor de sucre, farina i nervis.
 
@@ -200,10 +154,128 @@ Només es va quedar assegut al terra de la cuina, amb les mans tremolant i la se
 
 Des de fora, Rebeca va sentir que alguna cosa havia caigut.
 
+Ella estava netejant una de les habitacions. Encara portava els cabells solts i encara estava enfadada amb Miquel. Però era el seu germà. I per molt que intentara protegir-se d'ell, l'estimava.
+
 —Miquel? —va preguntar.
 
 No hi hagué resposta.
 
-Jimy també va mirar cap a la cuina, i per primera vegada va començar a pensar que potser aquella idea no havia sigut tan bona.
+Rebeca va deixar el drap damunt del llit i va anar cap a la cuina.
 
-<!-- CONTINUAR ACÍ: Rebeca o Jimy entren a la cuina i veuen Miquel plorant -->
+Quan el va veure assegut al terra, plorant en silenci, alguna cosa dins d'ella es va trencar.
+
+—Miquel...
+
+Ell va intentar apartar la cara.
+
+—Estic bé.
+
+—No.
+
+Rebeca es va ajupir al seu costat.
+
+—No estàs bé.
+
+Miquel va tremolar.
+
+—No passa res.
+
+—Mira'm.
+
+Ell no ho va fer.
+
+Aleshores Rebeca li va posar una mà a la galta amb una delicadesa que feia dies que no li donava.
+
+—Miquel, mira'm.
+
+Ell va alçar els ulls.
+
+Tenia la cara desfeta.
+
+Rebeca el va ajudar a alçar-se amb cura. Miquel quasi no tenia força, així que ella el va aguantar per la cintura i el va abraçar.
+
+No era l'abraçada d'abans.
+
+No arreglava res.
+
+Però era una abraçada.
+
+Miquel es va trencar del tot.
+
+Va amagar el cap entre els cabells solts de la seua germana i va plorar contra ella, respirant com si li fera mal estar despert.
+
+Rebeca va tancar els ulls.
+
+Encara tenia por.
+
+Encara pensava que a Miquel podia passar-li el pitjor.
+
+Encara intentava oblidar-lo un poc per si algun dia li faltava de veritat.
+
+Però no volia que li passara.
+
+No volia veure'l al terra.
+
+No volia que ningú el mirara com si fora brut, com si fora només el que havia fet malament.
+
+—Vine —va dir, molt baix.
+
+Miquel no va protestar.
+
+Rebeca el va agafar en braços com va poder, amb més força de la que pareixia tindre, i el va portar cap a una de les habitacions del Jimy Bar.
+
+El va deixar al llit amb cura.
+
+Miquel encara plorava.
+
+—Queda't ací —li va dir ella.
+
+—Rebe...
+
+—Ara torne.
+
+Rebeca va eixir de l'habitació i va tornar cap a la cuina.
+
+Leo estava allí, evitant mirar massa cap al passadís.
+
+Rebeca va entrar amb la cara dura i els ulls brillants.
+
+—Leo.
+
+Ell va alçar la mirada.
+
+—Què?
+
+—Què li has fet?
+
+Leo es va quedar quiet.
+
+—Res.
+
+—No em digues res.
+
+Jimy, que també havia mirat cap a la cuina, va entendre massa tard que aquella idea havia sigut horrible.
+
+Rebeca va fer una passa cap a Leo.
+
+—Jo també tinc por que li passe alguna cosa. Jo també pense que potser un dia no torna. Però precisament per això no suporte que el tractes així.
+
+Leo no va respondre.
+
+Rebeca va apretar els punys.
+
+—No saps res d'ell.
+
+Leo va mirar cap a un costat.
+
+—Sé prou.
+
+—No —va dir Rebeca—. Has vist una samarreta, una olor, una idea en el teu cap. Però no l'has vist a ell.
+
+El silenci de la cuina es va fer molt gran.
+
+Rebeca va respirar fondo.
+
+—No tornes a mirar el meu germà així.
+
+<!-- CONTINUAR ACÍ: resposta de Leo i entrada de Jimy o Rebeca tornant amb Miquel -->
