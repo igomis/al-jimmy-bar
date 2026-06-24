@@ -128,36 +128,90 @@ Leo va apartar la mirada.
 
 La cuina es va quedar muda.
 
-—Tens por per Sky —va continuar Rebeca—. Tens por pel que t'ha passat a tu. Tens por del fum, de la gent que promet i després desapareix. Ho entenc. Però no tens dret a condemnar el meu germà abans que ell acabe d'intentar eixir.
+Al passadís, Miquel s'havia despertat.
 
-Leo va apretar els punys.
+No havia volgut alçar-se. No del tot. Però havia sentit crits, havia sentit el seu nom i havia acabat acostant-se a la porta de la cuina, recolzat a la paret, massa pàl·lid per estar dret i massa trencat per tornar al llit.
 
-—No vull fer-li mal.
+No va entrar.
 
-—Doncs no el mires com si ja estiguera perdut.
+Només es va quedar allí, escoltant.
 
-Rebeca va assenyalar el passadís amb la mà tremolosa.
+Rebeca no el va veure.
 
-—Ara mateix només necessita que no li recorden cada segon que potser no ho aconseguirà.
+—No t'acostes a ell si no saps com fer-ho —li va dir a Leo, encara tremolant—. Però no el tractes com si haguera malgastat la seua vida.
 
-Leo no va respondre.
+Leo va baixar la mirada.
 
-—No t'estic demanant que l'estimes. Ni que oblides Sky. Ni que oblides el que et recorda el fum. Només et demane que no l'enfonses més.
+—No sé com mirar-lo, Rebeca.
 
-Leo va mirar el terra.
+La veu ja no li eixia tan forta, però continuava plena de ràbia i por.
 
-Per primera vegada, semblava menys segur.
+—Faça el que faça, li faig mal. Si intente parlar-li, li cride, perquè ol a fum i el fum, en ma casa, era l'equivalent a mentida i pèrdua. Si el mire, el mire amb rebuig perquè no tinc altra manera. Perquè així és com mire a mon pare.
 
-—No sé si puc.
+Rebeca va callar.
 
-—Aleshores aparta't —va dir Rebeca—. Però no l'ataques.
+Miquel, des de la porta, va tancar els ulls.
 
-El silenci va tornar a omplir la cuina.
+Leo va continuar:
 
-Leo no va dir res més.
+—Sé que Sky està ferida. Sé que està molesta amb ell. I tinc motius per mirar-lo malament. Però no vull tindre'ls. De veritat que no vull.
 
-Rebeca tampoc.
+Va respirar amb dificultat.
 
-Però els dos sabien que aquella conversa no havia acabat.
+—Sé que està fràgil, però és que el meu cos sent olor de fum, de substàncies tòxiques, i em convertisc en algú distint. En una part de mi que em protegeix perquè no caiga com mon pare. Però no m'agrada. No m'agrada gens.
 
-<!-- CONTINUAR ACÍ: Leo decideix si intenta disculpar-se o si s'aparta de Miquel -->
+La veu se li va trencar per primera vegada.
+
+—Conec la sensació que tot ix malament. Que res va com tu vols. Que és millor callar perquè sents que molestes allà on vas. I crec que Miquel se sent així. Però li faig mal sense voler.
+
+Leo va mirar Rebeca.
+
+—De veritat que ho sento.
+
+Rebeca va deixar d'apretar els punys.
+
+La ràbia no se n'havia anat, però una part d'ella va veure Leo d'una altra manera: no només com algú que havia ferit Miquel, sinó com un xiquet que també havia après massa prompte a sobreviure.
+
+—Tu tampoc estàs bé, eh? —va dir ella, més baixa.
+
+Leo no va contestar.
+
+—T'has fet gran massa prompte. I això no està bé.
+
+Ell va apartar la mirada.
+
+Rebeca va respirar fondo.
+
+—Digues-me una cosa. Per què m'has dit que Miquel no tornarà? Jo sé que és possible. Ho sé massa bé. Però vull pensar que no serà així.
+
+Leo va tardar a respondre.
+
+—Perquè mon pare va eixir dos cops del centre per a sempre.
+
+Rebeca va quedar-se quieta.
+
+—Sempre anava a ser a casa —va continuar Leo—. Sempre deia que aquesta vegada sí. Però va recaure. I quan va recaure, es va enamorar de la mare de Jimy, que estava allí. I com ella no sortia mai, ell va deixar de fer l'esforç.
+
+Miquel va obrir els ulls darrere de la porta.
+
+Leo va empassar saliva.
+
+—A més, ell era ciruja. No ho passava bé a la feina. El que vull dir és que pot semblar que el teu germà està recuperant-se i ser només una temporada.
+
+Rebeca va quedar-se sense aire.
+
+Durant uns segons, no va dir res.
+
+Quan va parlar, la veu li va eixir trencada.
+
+—De vegades intente creure que ha mort per no plorar després.
+
+Leo va mirar-la.
+
+—Però jo l'estime —va dir Rebeca—. I si li passara alguna cosa greu, no m'ho perdonaria.
+
+Al passadís, Miquel es va tapar la boca amb una mà per no fer soroll.
+
+Aquesta vegada, qui es va quedar sense paraules va ser Leo.
+
+<!-- CONTINUAR ACÍ: Miquel revela que ho ha sentit o torna a l'habitació -->
