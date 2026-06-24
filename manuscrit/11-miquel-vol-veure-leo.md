@@ -128,11 +128,7 @@ Leo es va quedar al llindar.
 
 La resposta va eixir massa forta.
 
-Leo va tancar els ulls un segon, com si intentara no cridar.
-
-Però no sabia fer-ho.
-
-No amb Miquel. No amb aquella olor de fum que encara li semblava notar encara que potser ja no hi era. No amb tot el que el seu cos recordava abans que ell poguera pensar.
+Leo va tancar els ulls un segon, com si intentara no cridar. Però no sabia fer-ho. No amb Miquel. No amb aquella olor de fum que encara li semblava notar encara que potser ja no hi era. No amb tot el que el seu cos recordava abans que ell poguera pensar.
 
 Miquel va respirar amb dificultat.
 
@@ -272,11 +268,11 @@ Una tos llarga, seca, d'aquelles que deixen el pit obert.
 
 —Continue trobant-me malament —va dir—. Tinc febra. I molta tos.
 
-—Aleshores queda't al llit.
+—Aleshores no et mous del llit.
 
 —No.
 
-—Luca.
+—Luca, sí.
 
 —Busca'm ja.
 
@@ -288,34 +284,206 @@ Kiti es va quedar quieta.
 
 La veu li tremolava, però no era només per la febra.
 
-—Luca, si tens febra...
+—Luca, tens febra. I no és poca cosa si quasi no pots parlar sense tossir.
 
-—Kiti, per favor. No vull faltar.
+—No em passa res.
 
-Ella va tancar els ulls un segon.
+—No em mentis. T'estic escoltant respirar.
 
-Sabia que Luca estava malament.
+Luca va intentar riure, però la rialla es va convertir en una altra tos.
 
-Però també sabia què significava Jimy per a ell.
+—Només és un refredat.
 
-—D'acord —va dir finalment—. Vaig a buscar-te. Però et porte una jaqueta grossa i si empitjores tornem.
+—Un refredat que et té amb veu de mort i tossint cada tres paraules.
 
-Luca va fer una rialla fluixa que va acabar en tos.
+—Kiti...
 
-—D'acord.
+—No.
 
-Kiti ja s'estava alçant.
+—És l'aniversari de Jimy.
 
-—No et mogues.
+Això la va fer callar un segon.
+
+Luca va aprofitar el silenci.
+
+—No vull faltar. És el meu germanastre. I aquest any... no sé. Aquest any sembla que tots necessiten que algú aparega.
+
+Kiti va tancar els ulls.
+
+—Ho sé.
+
+—Aleshores vine.
+
+—Vindré.
+
+—Ara?
+
+—Ara.
+
+—Per anar al Jimy Bar?
+
+—Per anar a ta casa.
+
+Luca va callar.
+
+—Kiti...
+
+—No vaig a discutir açò per telèfon. Vaig allí, et mire la cara, mire si tens febra de veritat i després parlem.
+
+—Tinc febra de veritat.
+
+—Doncs pitjor per a tu.
+
+—Això vol dir que em portes?
+
+—Això vol dir que vaig a cuidar-te primer.
+
+Luca va sospirar, cansat.
+
+—No vull quedar-me a casa.
+
+—No t'he dit que et quedes tot el dia. T'he dit que no vas a eixir així, corrent, com si el cos no importara.
+
+—Però si espere massa, arribarem tard.
+
+—Arribar tard és millor que arribar i caure redó davant de tots.
+
+Luca va callar.
+
+Kiti va suavitzar una mica la veu.
+
+—Escolta'm. Vaig a ta casa. Et pose el termòmetre, beus alguna cosa calenta, et prens el que toque i descanses una estona més. Si després estàs un poc millor, anem al Jimy Bar. Però no ixes ara.
+
+—Una estona quant és?
+
+—La que jo diga.
+
+—Això no és just.
+
+—Tindre febra tampoc.
+
+Luca va tornar a tossir.
+
+Aquesta vegada Kiti no va dir res fins que ell va acabar.
+
+—Veus? —va dir després—. Així no pots anar enlloc.
+
+—Puc.
+
+—Pots ser molt tossut, això sí.
+
+—Vindràs?
+
+—Ja estic agafant les claus.
+
+—Kiti.
+
+—Què?
+
+La veu de Luca va eixir més baixa.
+
+—No em deixes adormir-me i perdre-m'ho.
+
+Ella va quedar-se uns segons sense contestar.
+
+—No deixaré que t'ho perdes si puc evitar-ho.
+
+—Promés?
+
+—Promés. Però tu em promets que m'escoltaràs quan arribe.
+
+Luca va tardar massa a respondre.
+
+—Luca.
+
+—Promés.
+
+—Bé. No et mogues.
 
 —No puc massa.
 
 —Millor.
 
-Va penjar, va agafar les claus i va eixir quasi corrent.
+Kiti va penjar, va agafar les claus, una jaqueta grossa i va eixir quasi corrent.
 
-Perquè el Nadal estava sent un desastre per a massa gent.
+Quan va arribar a casa de Luca, ell ja estava assegut al llit, amb cara d'haver intentat vestir-se i haver fracassat a mitjan camí. Tenia les galtes roges, els ulls brillants i la respiració carregada.
 
-Però encara hi havia coses a les quals s'havia d'arribar, encara que fora amb febra.
+—Tu no vas enlloc així —va dir Kiti només veure'l.
 
-<!-- CONTINUAR ACÍ: Kiti recull Luca i van cap al Jimy Bar -->
+—Hola a tu també.
+
+—Luca.
+
+—Estic bé.
+
+Kiti li va tocar el front.
+
+—Estàs bullint.
+
+—Exageres.
+
+—No. Tu exageres fent-te el valent.
+
+Luca va abaixar la mirada.
+
+—Només vull anar-hi.
+
+Kiti es va asseure al seu costat.
+
+—Ja ho sé.
+
+—És Jimy.
+
+—Ja ho sé.
+
+—És el meu germanastre.
+
+—També ho sé.
+
+Ell va tossir una altra vegada i es va doblegar una mica cap avant.
+
+Kiti li va fregar l'esquena fins que va poder respirar millor.
+
+—Per això mateix no vas a presentar-te allí fet pols i preocupar-lo més.
+
+Luca la va mirar, frustrat.
+
+—Aleshores què faig?
+
+—Et quedes una estona més. Beus. Descanses. Deixes que et baixe un poc la febra. I després, si pots caminar sense semblar que vas a caure, t'hi porte.
+
+—De veritat?
+
+—De veritat.
+
+—No m'estàs enganyant perquè em quede?
+
+Kiti el va mirar seriosa.
+
+—No. Però si empitjores, no anem.
+
+Luca va fer una ganyota.
+
+—Això és xantatge.
+
+—Això és cuidar-te.
+
+Ell va acabar assentint, massa cansat per continuar lluitant.
+
+—D'acord. Una estona.
+
+Kiti li va ajudar a tornar a gitar-se i li va tapar millor la manta.
+
+—Una estona.
+
+Luca va tancar els ulls, però va murmurar:
+
+—No me'l vull perdre.
+
+Kiti es va quedar al seu costat.
+
+—No te'l perdràs si depén de mi.
+
+I, per primera vegada des que havia telefonat, Luca va deixar de resistir-se una mica.
+
+<!-- CONTINUAR ACÍ: Kiti espera amb Luca i decideixen quan anar al Jimy Bar -->
