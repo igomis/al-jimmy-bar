@@ -38,11 +38,17 @@ Nico va alçar una cella.
 
 José es va girar cap a Luca, que estava prop de la barra.
 
-—Luca! Hui, al meu bar, crema catalana gratis per a tot el món que en vulga una.
+Luca feia poc que treballava al Jimy Bar. Encara mirava les prestatgeries abans d'agafar qualsevol cosa, encara preguntava on anaven les culleres llargues i encara es quedava un segon quiet quan algú li demanava tres coses alhora. No era que no volguera fer-ho bé. Era que tot encara li venia gran.
 
-Durant un segon ningú va reaccionar.
+A més, quan estava en silenci semblava un noi tímid, quasi absent. Però si algú li donava peu, si algú l'envoltava prou perquè se sentira segur, començava a parlar i ja no parava.
 
-Després el Jimy Bar va esclatar.
+—Luca! —va cridar José—. Hui, al meu bar, crema catalana gratis per a tot el món que en vulga una.
+
+Luca va obrir molt els ulls.
+
+—Perdona? Crec que he sentit malament. Has dit una crema catalana gratis per a tot el món o has dit que vols que jo desaparega darrere de la barra i no torne mai més?
+
+El Jimy Bar va esclatar en rialles.
 
 —Jo en vull una!
 
@@ -52,29 +58,33 @@ Després el Jimy Bar va esclatar.
 
 —Luca, salva'm una!
 
-Luca va obrir els braços, superat.
+Luca va alçar les dues mans, intentant imposar un ordre que ningú li feia cas.
 
-—Però vosaltres sabeu quantes cremes catalanes són això? Açò no és traure quatre plats i ja està. Açò és una invasió de culleres!
+—A veure, a veure, a veure. Jo fa quatre dies que treballe ací. Quatre. Encara no sé si les culleres menudes viuen al primer calaix o s'amaguen per fer-me la vida impossible, i ara voleu que servisca cremes catalanes a mig barri?
 
 José va riure.
 
 —Les que facen falta!
 
-—Les que facen falta, diu... —va protestar Luca, entrant darrere de la barra—. Clar, com que no les has de servir tu. Jo ací soc cambrer, psicòleg, encarregat de catàstrofes i ara també repartidor oficial de crema catalana.
+—Les que facen falta, diu... —va protestar Luca, entrant darrere de la barra—. Clar, com que no les has de servir tu. Jo ací soc cambrer en pràctiques emocionals, germanastre improvisat, encarregat de catàstrofes i ara també repartidor oficial de crema catalana.
 
 Algú va aplaudir.
 
 —Luca president! —va cridar una veu del fons.
 
-—President no, gràcies —va respondre Luca sense deixar de traure plats—. Que això segur que també em tocaria netejar-ho després.
+—President no, gràcies —va respondre Luca sense deixar de buscar plats—. Que segur que també em tocaria netejar el país després.
 
 La gent va riure.
 
-Luca va començar a servir crema catalana per tot arreu. En portava a les taules, a la barra i als racons on encara hi havia gent parlant del concert. Però molt prompte va quedar clar que era massa gent per a ell sol.
+Luca va començar a servir crema catalana. Al principi anava concentrat, comptant plats, culleres i taules en veu baixa.
+
+—Una per a la taula tres, dues per als del costat, una per al senyor que diu que no vol postres però m'ha mirat la safata com si fora l'amor de la seua vida...
+
+Però molt prompte va quedar clar que era massa gent per a ell sol.
 
 Jimy ho va veure de seguida.
 
-Encara tenia la guitarra a l'esquena. Encara acabaven de presentar-lo com a membre del Tercer Cel. Encara hi havia gent mirant-lo com si fora algú nou. Però quan va veure Luca amb tres plats en una mà, dues culleres a l'altra i cara de voler dimitir de la vida, Jimy no ho va dubtar.
+Encara tenia la guitarra a l'esquena. Encara acabaven de presentar-lo com a membre del Tercer Cel. Encara hi havia gent mirant-lo com si fora algú nou. Però quan va veure Luca amb tres plats en una mà, dues culleres a l'altra i cara de voler demanar un mapa del mateix bar, Jimy no ho va dubtar.
 
 Es va llevar la guitarra amb cura i la va deixar recolzada darrere de la barra.
 
@@ -90,27 +100,45 @@ Jimy va somriure.
 
 —Ja —va respondre ell—. Però continue sent Jimy. I en aquest bar, si hi ha faena, s'ajuda.
 
-Luca el va veure aparéixer al seu costat i va obrir molt els ulls.
+Luca el va veure aparéixer al seu costat i va respirar com si li acabaren d'enviar reforços.
 
-—Perdona, senyor compositor, cantant, guitarrista i nova estrella del Tercer Cel. No sabia que els artistes també servien postres.
+—Gràcies. Per fi algú amb coneixement. Perquè el teu pare diu "crema catalana gratis" i jo, que fa poc que treballe ací, he d'endevinar si això és una celebració o una prova per veure si sobrevisc al torn.
 
 Jimy va agafar una safata.
 
-—Els artistes no ho sé. Jo sí.
+—José no és el meu pare.
 
-Luca va somriure, cansat però alleujat.
+Luca es va quedar un segon en silenci, com si haguera recordat de colp el lloc estrany que ocupaven tots dos en aquella família feta a pedaços.
 
-—Així m'agrada. Molt Tercer Cel, molt escenari, però si em deixes sol amb tot açò et canvie la guitarra per una fregona.
+—Ja ho sé —va dir més fluix—. I Víctor no és el teu pare tampoc. Però... ja m'entens.
 
-—Fet —va dir Jimy—. Però després em tornes la guitarra.
+Jimy el va mirar.
 
-—Depén de com servisques les cremes.
+Luca va baixar la veu, però després va tornar a parlar de pressa, com feia sempre que alguna cosa li feia vergonya.
+
+—Vull dir, tècnicament som germanastres perquè el meu pare està amb ta mare, que ja sé que això sona fatal dit així enmig d'una safata de postres, però és la veritat. I jo encara no sé molt bé què soc ací: si treballador nou, germanastre, convidat incòmode o xiquet que no sap on van les culleres.
+
+Jimy va suavitzar el gest.
+
+—Pots ser tot això i igualment no carregar-ho tot sol.
+
+Luca va somriure, alleujat.
+
+—Molt bé. Doncs com a germanastre oficialment desbordat, et nomene ajudant de cremes catalanes.
+
+—Acceptat.
+
+—Però amb condicions —va afegir Luca, recuperant el seu to ràpid—. Si algú pregunta on està el sucre cremat, dius que és art. Si algú es queixa que tarda molt, li cantes. I si José torna a dir "gratis per a tots", jo em fique baix de la barra i tu expliques la meua desaparició.
+
+Jimy va riure.
+
+—Fet.
 
 Els dos van començar a repartir plats junts.
 
-Luca parlava amb tothom mentre servia. Feia bromes, es queixava, saludava clients i protegia les cremes com si foren tresors. Jimy anava al seu costat, deixant postres a les taules, recollint culleres i esquivant abraçades improvisades.
+Luca parlava molt més ara que no estava sol. Feia bromes, es queixava, saludava clients i repetia que encara era nou cada vegada que obria el calaix equivocat. Jimy anava al seu costat, deixant postres a les taules, recollint culleres i esquivant abraçades improvisades.
 
-Cada vegada que algú li deia enhorabona, Jimy somreia i deia gràcies, però no deixava de treballar. No perquè se sentira obligat, sinó perquè no volia que Luca carregara tot sol amb aquella bogeria.
+Cada vegada que algú li deia enhorabona, Jimy somreia i deia gràcies, però no deixava de treballar. No perquè se sentira obligat, sinó perquè no volia que Luca carregara tot sol amb aquella bogeria. I tampoc volia que Luca, que sempre semblava necessitar gent al voltant per no perdre's, se sentira sol en un bar que encara no era del tot seu.
 
 Rebeca el mirava des d'una taula, amb els ulls encara humits.
 
@@ -139,6 +167,12 @@ Aries va somriure fluix.
 Jimy va mirar Luca, després José, després Rebeca i després el Tercer Cel.
 
 —No ho sé encara —va dir, somrient d'orella a orella—. Però crec que per fi estic on havia d'estar.
+
+Luca, que passava per darrere amb una safata massa plena, va afegir sense parar-se:
+
+—I també és el meu ajudant. Que conste en acta.
+
+Jimy va riure.
 
 I, per primera vegada en molt de temps, no va sentir que havia de guanyar-se el lloc.
 
