@@ -28,11 +28,17 @@ Venia d'un racó del bany.
 
 Era Aries.
 
-Estava assegut a terra, amb l'esquena contra la paret i la respiració desordenada. Rebeca, la cosina de Jimy, s'havia agenollat davant d'ell i intentava calmar-lo sense èxit.
+Estava assegut a terra, amb l'esquena contra la paret i la respiració desfeta. Tenia una mà al coll, com si intentara aguantar dins la gola una veu que ja no li responia. Rebeca, la cosina de Jimy, s'havia agenollat davant d'ell i intentava calmar-lo sense èxit.
 
 —Aries... mira'm... per favor... Respira... estic ací...
 
-—No puc... no puc més...
+Aries va negar amb el cap, violentament.
+
+—No! —va intentar cridar.
+
+Però no li va eixir un crit. Li va eixir una veu trencada, ronca, ferida, com un crit apagat dins d'una gola que ja no podia més.
+
+—No vull parlar! No vull que em mireu! No puc... no puc més...
 
 Jimy es va quedar quiet, encara amb les llàgrimes caient-li per la cara.
 
@@ -42,7 +48,7 @@ El Tercer Cel es va adonar de seguida que faltava un dels seus.
 
 La porta del bany es va obrir de colp.
 
-Primer va entrar Ariel. Darrere d'ella entraren Jasmín i Hèrcules. Després Nico, Sky, Emma i la resta del grup, tots amb la mateixa cara de por. Havien deixat la festa darrere perquè Aries no estava bé.
+Primer va entrar Ariel. Darrere d'ella entraren Jasmín i Hèrcules. Després Nico i la resta del grup. Emma i Sky no eren allí; aquell bany s'havia omplit només amb els del Tercer Cel, amb els qui coneixien Aries prou per a entendre que si havia fugit de l'escenari era perquè alguna cosa s'havia trencat de veritat.
 
 —On està...? —va començar Ariel.
 
@@ -54,15 +60,19 @@ Perquè Aries estava trencat a terra.
 
 Però Jimy també.
 
-Jimy va apartar-se de l'aixeta i va intentar netejar-se la cara amb la màniga, com si encara poguera amagar que estava plorant. Però ja l'havien vist.
+El colp va travessar el grup sencer. No sabien a qui mirar primer. Aries respirava com si cada glop d'aire li fera mal, i Jimy, el Jimy que sempre aguantava, estava al costat de l'aixeta amb la cara plena de llàgrimes.
+
+Durant uns segons ningú va dir res.
 
 El silenci va fer més mal que qualsevol pregunta.
+
+Jimy va apartar-se de l'aixeta i va intentar netejar-se la cara amb la màniga, com si encara poguera amagar que estava plorant. Però ja l'havien vist.
 
 Rebeca va girar el cap cap a ell.
 
 I se li va trencar alguna cosa per dins.
 
-Mai havia vist Jimy així. L'havia vist enfadat, callat, distant, ferit. Però no així. No amb aquell plor que semblava portar massa anys guardat.
+Mai havia vist Jimy així. L'havia vist enfadat, callat, distant, ferit. Havia vist el seu cosí fer-se el fort tantes vegades que quasi havia arribat a creure que no sabia caure. Però ara estava caient davant d'ella.
 
 Durant un segon va mirar Aries. Després va mirar el Tercer Cel, que ja s'acostava a ell. I va entendre que el seu cosí no es quedaria sol.
 
@@ -70,77 +80,111 @@ Ariel es va agenollar davant d'Aries.
 
 —Eh... mira'm.
 
-Jasmín es va posar al seu costat i Hèrcules li va posar una mà a l'esquena.
+—No! —va fer Aries, apartant la cara—. No em digueu res! No puc cantar! No puc ni parlar! No servisc per a açò!
 
-Rebeca es va alçar molt lentament.
+La veu se li va trencar a mitjan frase. Volia cridar, però el crit no li eixia. Precisament això feia més mal: Aries cridava sempre quan estava desesperat, però ara ni això podia fer.
 
-Jimy va negar amb el cap, com si li estiguera dient que no s'acostara, que no passava res, que ell podia aguantar.
+Jasmín es va posar al seu costat.
 
-Però Rebeca ja no el va creure.
+—Aries...
 
-Va caminar fins a ell i el va abraçar.
+—No, Jasmín! —va intentar tallar-la—. Tu no ho entens! Vosaltres no ho enteneu! Jo havia d'estar bé hui. Havia d'aguantar. Havia de cantar.
 
-Jimy es va quedar rígid un instant. Després se li va desfer tot el cos.
+Nico va fer un pas avant, però Ariel li va alçar una mà, demanant-li calma. No perquè no poguera acostar-se, sinó perquè Aries semblava a punt de fugir fins i tot d'ells.
 
-Va amagar la cara contra l'espatla de Rebeca i va començar a plorar de veritat. Sense dissimular. Sense aguantar. Sense fer-se el fort.
+Hèrcules es va ajupir davant d'Aries. Tenia els ulls plens de llàgrimes abans d'obrir la boca.
 
-Rebeca el va estrényer més.
+—Jo sí que t'entenc.
 
-I també va plorar.
+Aries el va mirar amb ràbia i desesperació.
 
-No plorava només per ell. Plorava amb ell. Com si en aquell abraç haguera entés de colp totes les vegades que Jimy havia callat, totes les vegades que havia fet veure que estava bé, totes les vegades que havia esperat una mare que arribava tard fins i tot quan demanava perdó.
+—No digues això.
 
-—Ho sent... Ho sent molt, Jimy...
+—Ho dic perquè és veritat —va respondre Hèrcules, i la veu li va tremolar—. Jo sé què és pensar que si falles, ja no vals. Sé què és sentir que tens una cosa dins que et diu que no eres prou per a ningú.
 
-Jimy no va respondre.
+Aries va deixar de negar amb el cap.
 
-Només la va abraçar més fort.
+Hèrcules va intentar continuar, però se li va trencar la veu. Les llàgrimes li van caure sense que poguera parar-les.
 
-A l'altre costat del bany, Aries negava amb el cap.
-
-—No puc cantar... no puc...
-
-—No passa res si hui no pots —va dir Ariel.
-
-—Sí que passa...
-
-La veu li eixia ronca, gairebé trencada.
-
-Jasmín li va agafar una mà.
-
-—Aries, escolta'm. Si no fora per tu, jo no hauria cantat mai. Mai. Tu em vas fer creure que podia pujar a un escenari encara que em tremolara tot el cos.
-
-Aries va alçar una mica la mirada.
-
-—Però jo ara no puc...
-
-—Ara no pots cantar —va respondre Jasmín—. Però això no vol dir que no sigues qui ens ha ensenyat a cantar a molts de nosaltres.
-
-Ariel li va acariciar els cabells.
-
-—Tu no ets menys músic perquè hi haja dies que la veu et falle. Ets un bon músic, Aries. Ho ets quan cantes, quan no cantes, quan composes, quan ens escoltes i quan ens ajudes a no rendir-nos.
-
-Hèrcules es va ajupir al seu costat.
-
-—Jo sé què és sentir que no vals prou —va dir en veu baixa.
-
-Aries el va mirar.
-
-—No digues això...
-
-—Ho dic perquè ho sé. Jo també he crescut pensant que si ningú m'havia adoptat mai potser era perquè jo no era prou per a ningú.
+—Jo també he crescut pensant que si ningú m'havia adoptat mai potser era perquè jo no era prou per a ningú.
 
 El bany va quedar glaçat.
 
-Hèrcules va empassar saliva.
+Jasmín es va tapar la boca. Ariel va tancar els ulls un instant, com si aquelles paraules també li hagueren fet mal a ella.
 
-—Però això era mentida. I això que estàs pensant ara també és mentida.
+Hèrcules va avançar de genolls i va abraçar Aries.
 
-Jasmín li va allargar una botella d'aigua.
+—Però era mentida —va dir plorant contra ell—. Era mentida, Aries. I això que estàs pensant ara també és mentida. No eres menys perquè hui la veu t'haja fallat. No eres menys perquè estigues trencat. No eres menys perquè necessites que t'aguantem.
 
-—Respira. A poc a poc.
+Aries es va quedar rígid.
 
-Aries va acabar amagant el cap entre les mans. Continuava plorant, però ja no estava sol.
+Primer no va tornar l'abraç.
+
+Després va fer un soroll menut, quasi sense veu, i es va afonar contra Hèrcules.
+
+Jasmín no va aguantar més. Es va agenollar al costat dels dos i els va abraçar també.
+
+—Si no fora per tu, jo no hauria cantat mai —va dir entre llàgrimes—. Mai. Tu em vas fer creure que podia pujar a un escenari encara que em tremolara tot el cos.
+
+Ariel es va unir a l'abraç, acariciant els cabells d'Aries amb una delicadesa que contrastava amb tot el dolor que hi havia dins del bany.
+
+—Tu no ets menys músic perquè hi haja dies que la veu et falle —li va xiuxiuejar—. Ets un bon músic, Aries. Ho ets quan cantes, quan no cantes, quan composes, quan ens escoltes i quan ens ajudes a no rendir-nos.
+
+Nico es va acostar després. I darrere d'ell, la resta del Tercer Cel.
+
+Un a un, sense pressa, van acabar envoltant Aries. No amb paraules perfectes. No amb promeses impossibles. Només amb braços, mans a l'esquena, fronts recolzats i plors compartits.
+
+Aries ja no estava sol.
+
+A l'altre costat del bany, Rebeca va respirar com si haguera pres una decisió.
+
+Es va alçar molt lentament i va deixar que el Tercer Cel sostinguera el seu cosí.
+
+Llavors es va acostar a Jimy.
+
+Jimy la va veure vindre i va fer uns passos arrere.
+
+No volia que el vera així.
+
+No volia que Rebeca, precisament Rebeca, el vera amb la cara desfeta, amb els ulls rojos, amb aquell plor que ja no podia controlar. Ella l'havia vist plorar poques vegades. Massa poques. I ell hauria volgut que aquella no fora una d'elles.
+
+—Jimy... —va dir Rebeca.
+
+Jimy va negar amb el cap, apartant la mirada.
+
+—No vull que em veges així...
+
+La frase li va eixir trencada. Quasi com una súplica.
+
+Rebeca es va quedar parada davant d'ell. També tenia els ulls plens de llàgrimes.
+
+—Soc la teua nòvia, Jimy.
+
+Ell va tancar els ulls.
+
+—Rebeca...
+
+—M'has vist plorar mil cops —va continuar ella, amb la veu cada vegada més fràgil—. Tinc dret a consolar-te jo també.
+
+Jimy va intentar aguantar encara un segon més.
+
+Només un.
+
+Però Rebeca va obrir els braços i alguna cosa dins d'ell va deixar de resistir.
+
+Va caure contra ella.
+
+Rebeca el va abraçar amb força, com si volguera subjectar totes les parts que se li estaven desfent. I llavors també es va trencar. Va plorar mentre l'abraçava. No amb un plor discret, no amb un plor tranquil. Va plorar amb ell, contra ell, com si el dolor de Jimy li haguera entrat al cos i ja no poguera fingir que només era d'ell.
+
+Jimy va amagar la cara al coll de Rebeca.
+
+—No puc més —va confessar, tan baix que quasi no es va sentir.
+
+—No cal que pugues ara —li va respondre ella—. Hui t'aguante jo.
+
+Jimy la va abraçar més fort.
+
+A pocs metres, Aries continuava plorant dins de l'abraç del Tercer Cel. Hèrcules encara el subjectava com si en aquell gest també estiguera rescatant una part d'ell mateix. Jasmín i Ariel no el soltaven. Nico i la resta del grup havien format al seu voltant una mena de mur contra tot el que Aries pensava de si mateix.
 
 Jimy, encara abraçat a Rebeca, va mirar aquella escena entre llàgrimes.
 
