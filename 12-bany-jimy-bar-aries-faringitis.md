@@ -199,3 +199,117 @@ En aquell bany menut, amb l'aixeta encara oberta i els aplaudiments sonant lluny
 El Tercer Cel no era només cantar junts.
 
 Era sostenir-se quan un ja no podia aguantar-se dret.
+
+## Tornar a l'escenari
+
+Van tardar uns minuts a poder respirar sense trencar-se.
+
+Un a un, es van acostar a l'aixeta. Primer Aries, sostingut per Ariel i Hèrcules. Després Jimy, encara amb Rebeca al costat, com si ella no volguera soltar-lo del tot.
+
+Es van rentar les llàgrimes amb cura, intentant esborrar de la cara el rastre del que acabaven de viure. Però no podien esborrar-ho del tot. Els ulls rojos els delataven. Les mans tremoloses també.
+
+Jimy va obrir la seua bossa i va traure el maquillatge.
+
+Es va mirar al mirall una vegada més.
+
+Aquesta vegada no va intentar semblar algú que estava bé.
+
+Només va tornar a pintar-se els ulls foscos, lentament, com si aquell gest fora una manera de recollir-se del terra i tornar a ser ell. Rebeca el mirava en silenci. Quan Jimy va acabar, ella li va agafar la mà.
+
+—Estàs?
+
+Jimy va respirar fondo.
+
+—Estic.
+
+A l'altre costat del bany, el Tercer Cel ajudava Aries a posar-se dret. Ningú li va demanar que fingira. Ningú li va exigir que tornara a ser el de sempre. Només el van sostindre entre tots, amb una naturalitat que a Jimy li va apretar el pit.
+
+Després es van tornar a posar la roba d'actuar.
+
+Hi havia alguna cosa diferent en ells. No semblaven menys trencats. Però sí més junts.
+
+Quan van eixir del bany, el soroll del Jimy Bar els va rebre com una onada.
+
+Alguns es van girar. Altres van aplaudir sense saber què havia passat darrere d'aquella porta. Els metges miraven des d'un costat. Víctor també. La mare de Jimy no va dir res.
+
+Jimy va pujar primer a l'escenari.
+
+Va agafar la guitarra i es va quedar sol davant de tots.
+
+Durant uns segons ningú va parlar.
+
+Llavors va començar a tocar.
+
+No era cap cançó coneguda. Eren acords improvisats, suaus al principi, com si encara estiguera buscant on posar tot el que li tremolava dins. Després els acords van créixer, més foscos, més valents, més seus.
+
+El local va anar callant a poc a poc.
+
+Mario va acostar-se a ell i li va preguntar alguna cosa a cau d'orella.
+
+Jimy va mirar-lo.
+
+Després va mirar Nico.
+
+I va assentir.
+
+Mario i Nico es van posar davant dels micròfons al mateix temps. Es van mirar només un segon, com si s'hagueren posat d'acord sense parlar.
+
+—Bé —van dir tots dos alhora.
+
+Algunes persones van riure fluix.
+
+Mario va continuar:
+
+—Esperem que us haja agradat aquest concert. Hui tenim entre nosaltres un noi molt especial. Sense ell, hui no podríem estar ací.
+
+Nico va somriure, emocionat.
+
+—Us presentem el compositor, cantant i guitarrista... Jimy!
+
+El Jimy Bar va esclatar en aplaudiments.
+
+Mario va alçar una mà, com si encara faltara una cosa important.
+
+—Sí. El fill de José, qui cuida d'aquest local. I, per cert, la cançó que hem cantat és la vida de Jimy sense cap filtre. I va ser idea seua cantar-la.
+
+Jimy va abaixar la mirada, aclaparat.
+
+Nico es va acostar al micro.
+
+—Això no ho heu sentit, però acabe de preguntar a Jimy si vol formar part de la nostra banda, el Tercer Cel.
+
+Va mirar Jimy amb els ulls brillants.
+
+—I ha dit que sí.
+
+Durant un segon, el món es va quedar quiet.
+
+Després el bar va esclatar.
+
+Aplaudiments, crits, xiulets, gent dreta, mans colpejant les taules. Jimy no sabia on mirar. Rebeca plorava i reia alhora. Aries, encara sostingut pel grup, va alçar una mà per aplaudir-lo també.
+
+Jimy va somriure amb els ulls humits.
+
+Per primera vegada aquella nit, no va sentir que estava entrant en una casa aliena.
+
+Va sentir que algú li acabava d'obrir una porta.
+
+Després van baixar de l'escenari.
+
+Algú va posar música. Algú més va cridar que tocava ballar. I de sobte, sense que ningú ho organitzara, es va formar una tonga.
+
+Primer van començar uns quants. Després s'hi va afegir Rebeca, encara amb la mà de Jimy agafada. Després el Tercer Cel. Després més gent del bar.
+
+La tonga va anar creixent entre rialles, crits i cossos que es deixaven portar. Fins i tot alguns que deien que no ballaven mai van acabar dins.
+
+Quasi tot el Jimy Bar ballava.
+
+Quasi tot.
+
+La mare de Jimy no s'hi va afegir.
+
+Víctor tampoc.
+
+Els metges es van quedar a un costat, mirant aquella escena amb una barreja de cansament i alleujament.
+
+Però al centre del local, Jimy ballava amb Rebeca, envoltat del Tercer Cel, mentre la tonga girava com si, per uns minuts, el dolor haguera deixat espai a una alegria impossible.
