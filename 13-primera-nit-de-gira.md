@@ -8,6 +8,12 @@ Al darrere, la videotrucada amb Maria i Ginesta encara havia durat uns minuts m�
 
 Mario havia intentat tornar a fer bromes amb els palets, però ja no li eixien tan fortes. Arnau havia parlat poc. Massa poc. Maria intentava somriure perquè tots pogueren marxar tranquils, però cada vegada que la imatge tremolava per la connexió, a Arnau se li tancava una mica més la cara.
 
+Ginesta no estava en aquella gira amb Maria.
+
+No compartien banda, ni furgoneta, ni escenari.
+
+Però Maria li parlava més a ella que a ningú, perquè Ginesta era la seua millor amiga i hi havia coses que només li podien eixir si les deia sense haver d'explicar-se del tot.
+
 —Escriviu quan pareu —va dir Ginesta des de la pantalla.
 
 —Escriurem —va respondre Mario.
@@ -31,6 +37,20 @@ La pantalla es va apagar.
 I el silenci que va quedar dins la furgoneta no va ser incòmode. Va ser un silenci cansat, d'eixos que no demanen explicacions. Un silenci ple de motors, rodes, respiracions, bosses que es movien amb cada corba i paper d'alumini arrugat entre les caixes de pizza.
 
 Jasmín conduïa amb els ulls oberts i ferms, però amb la cara suau. De tant en tant mirava pel retrovisor i veia la banda desfent-se a poc a poc. No de tristesa. De son.
+
+Tots sabien conduir.
+
+Però ningú conduïa com ella.
+
+Jasmín era la que menys pujava a l'escenari, la que més vegades quedava a un costat quan els focus s'encenien, la que a voltes havia sentit que alguns la miraven com si només acompanyara la banda. Però cada gira començava quan ella arrancava la furgoneta. Cada concert arribava perquè ella aguantava la nit, les corbes, els mapes, els peatges i el cansament dels altres.
+
+No era només la xofer del grup.
+
+Era la que feia que el grup poguera arribar.
+
+Per això no dormia.
+
+No aquella nit.
 
 Nat estava asseguda al costat d'Hèrcules, amb una cama doblegada sota l'altra i el cos inclinat cap a ell. Compartien els mateixos cascos, un auricular cadascun, i la música sonava tan baixa que semblava més un batec que una cançó.
 
@@ -108,7 +128,41 @@ La tela li va caure damunt com una casa menuda.
 
 Va tancar els ulls, va agafar aire i es va quedar així, quiet, amb les mans amagades dins les mànigues. Continuava nerviós. Continuava pensant en ella, en aquella gira, en aquell nom que ningú havia dit per no embrutar més la nit.
 
-Però es va posar música.
+Va desbloquejar el mòbil.
+
+Va escriure:
+
+—Maria, estàs bé?
+
+Va esperar.
+
+No molt.
+
+Maria va contestar quasi de seguida.
+
+—Sí. No puc dormir massa, però estic bé.
+
+Arnau va empassar saliva.
+
+Sabia que aquell "estic bé" no volia dir que estiguera bé del tot. Volia dir que continuava allí. Que aguantava. Que no volia que ell es trencara més del necessari.
+
+Maria també estava de gira, però aquella gira no li estava donant llibertat. Li estava llevant hores amb Arnau i li estava donant massa hores amb el seu ex. Massa assajos, massa passadissos, massa furgonetes, massa escenaris compartits amb algú que ja no volia prop i que continuava sent una molèstia enganxada a cada dia.
+
+Arnau va escriure una resposta.
+
+La va esborrar.
+
+Després només va posar:
+
+—T'estime.
+
+Maria va contestar:
+
+—Jo també. Dorm una mica, per favor.
+
+Arnau ho va intentar.
+
+Es va posar música.
 
 Baixeta.
 
@@ -117,6 +171,26 @@ Una cançó darrere d'una altra.
 Fins que els pensaments van començar a anar més lents.
 
 Fins que la cara de Maria cosida al seu pit va deixar de pesar-li com una absència i va començar a abrigar-lo com una promesa.
+
+Però cada vint minuts, literalment cada vint minuts, Arnau s'alçava una mica del seient, obria els ulls com si haguera sentit una alarma invisible i escrivia el mateix:
+
+—Maria, estàs bé?
+
+I Maria responia.
+
+Sempre responia.
+
+—Sí.
+
+—Sí, amor.
+
+—Estic desperta.
+
+—Parle amb Ginesta. No patisques.
+
+—Intenta dormir tu.
+
+Només quan veia aquelles paraules, Arnau tornava a recolzar el cap, tancava els ulls i fingia que ara sí, que ara el cos li faria cas.
 
 Mario tampoc semblava preparat per dormir com una persona normal.
 
@@ -153,6 +227,38 @@ Allò ho va dir més fluix.
 I per això ningú va fer broma.
 
 Mario es va posar la mascareta facial amb els ulls molt oberts, intentant no riure, però quan es va recolzar contra la finestra, embolicat en aquell batí morat i verd amb cors, tenia una expressió tan tranquil·la que fins i tot Arnau va deixar de patir per ell durant uns segons.
+
+Però Mario tampoc dormia del tot.
+
+Cada poc temps obria un ull, agafava el mòbil i escrivia a Ginesta, no a Maria.
+
+No volia molestar Maria.
+
+Sabia que si Maria estava desperta era perquè estava nerviosa, i sabia que si Maria parlava amb algú de veritat seria amb Ginesta. Per això Mario no li enviava missatges directes. No volia afegir-li una altra preocupació a la nit.
+
+A Ginesta, en canvi, li escrivia sense disfressar-se de bromista.
+
+—Has parlat amb Maria?
+
+Una estona després:
+
+—Està bé?
+
+Més tard:
+
+—No li escric perquè no vull molestar-la.
+
+Ginesta contestava amb paciència de millor amiga i mala llet controlada.
+
+—Sí. Està desperta.
+
+—Està nerviosa, però m'està parlant.
+
+—No la maregeu tots. Jo la tinc.
+
+—Dorm, Mario.
+
+Mario mirava la pantalla, respirava una mica millor i tornava a deixar el mòbil damunt del pit, sobre el batí de cors, com si Ginesta li haguera enviat una manta a través de les paraules.
 
 Jimy havia deixat de tocar.
 
@@ -200,9 +306,9 @@ Ho intentava amb la mateixa dignitat que Nat.
 
 I amb el mateix èxit.
 
-Però abans de rendir-se, va girar-se una mica cap a Jasmín.
+Però abans de rendir-se del tot, va girar-se una mica cap a Jasmín.
 
-—Vols cafè?
+—Jas, vols cafè?
 
 —Si he de soltar el volant, no.
 
@@ -248,21 +354,41 @@ I una altra.
 
 Nico es va adormir amb el got buit entre les mans, la dessuadora de Jasmín posada i el cap caigut cap al costat.
 
-Jasmín el va mirar de reüll i va negar amb el cap, però somreia.
+Però no dormia molt seguit.
+
+Cada poc temps, com si el cos recordara la faena encara que el cervell no, obria un ull, buscava el got, mirava Jasmín i preguntava amb la veu desfeta:
+
+—Jas, vols cafè?
+
+A voltes ella deia que no amb el cap.
+
+A voltes deia:
+
+—Un glop.
+
+I Nico, mig adormit, li acostava el cafè a la boca sense que ella soltara el volant.
+
+Després tornava a caure cap al seient.
+
+—Eres el pitjor copilot del món —li va dir Jasmín una de les vegades.
+
+—Però el millor cambrer nocturn —va murmurar ell, ja quasi dormint.
+
+Jasmín va negar amb el cap, però somreia.
 
 A la furgoneta ja només quedava desperta ella.
 
 Darrere, Natalia i Hèrcules dormien amb els cascos compartits, un auricular cadascun, i un somriure que encara semblava continuar escoltant la mateixa cançó.
 
-Ariel i Aries dormien junts sota la bufanda enorme de sirenes i calaveres, amb els antifaços posats i les mans agafades com si la nit no tinguera permís per separar-los.
+Ariel i Aries dormien junts sota la seua enorme bufanda de sirenes i calaveres, amb els antifaços posats i les mans agafades com si la nit no tinguera permís per separar-los.
 
-Arnau dormia amb la dessuadora de Maria, una mà sobre la cara cosida al pit.
+Arnau dormia a trossos, amb la dessuadora de Maria i el mòbil encara calent a la mà, preparat per despertar-se una altra vegada i escriure les mateixes quatre paraules.
 
-Mario dormia amb el batí morat i verd amb cors, la mascareta facial ben posada i la boca mig oberta, profundament convençut, fins i tot adormit, que allò era una rutina de bellesa seriosa.
+Mario dormia a trossos també, amb el batí morat i verd amb cors, la mascareta facial ben posada i el mòbil sobre el pit, esperant els missatges de Ginesta sense voler molestar Maria.
 
 Jimy dormia abraçat a la funda de la guitarra, amb el collar de la R i la foto de Rebeca guardats en la butxaca exterior, prop del lloc exacte on li bategava tot el que encara no sabia dir.
 
-Nicolau dormia al seient del copilot, vençut per la son, amb la dessuadora de Jasmín i el cap inclinat cap a la finestra.
+Nicolau dormia al seient del copilot, vençut per la son, amb la dessuadora de Jasmín i el cap inclinat cap a la finestra, però encara capaç de despertar-se només per preguntar si ella volia cafè.
 
 I Jasmín conduïa sola de nit, amb la carretera oberta davant, les mans fermes al volant, la dessuadora de Nico damunt dels muscles i tota la banda adormida al darrere.
 
