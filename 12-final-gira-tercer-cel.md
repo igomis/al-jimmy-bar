@@ -8,7 +8,7 @@ Però els del Tercer Cel no van marxar.
 
 Era evident que no pensaven fer-ho.
 
-S'havien quedat junts prop de l'escenari, amb les motxilles, les jaquetes, els instruments i aquella energia estranya que apareix quan una nit ha canviat alguna cosa per sempre.
+S'havien quedat junts prop de l'escenari, amb les motxilles, les jaquetes, els instruments i aquella energia estranya que apareix quan un dia ha canviat alguna cosa per sempre.
 
 Havien tret una cançó nova.
 
@@ -96,7 +96,7 @@ José va riure, però se li va trencar una mica la cara.
 
 —Ho he aprés de tu.
 
-Jimy també va abraçar Luca, Leo i Liris, la mare de Luca i Leo. Luca va parlar molt, com sempre que estava nerviós, dient-li que no oblidara escriure, que no perdera la guitarra, que si veia una crema catalana decent en un altre lloc li fera foto però no li fora infidel al bar. Leo només li va dir que tornara.
+Jimy també va abraçar Luca, Leo i Lliris, la mare de Luca i Leo. Luca va parlar molt, com sempre que estava nerviós, dient-li que no oblidara escriure, que no perdera la guitarra, que si veia una crema catalana decent en un altre lloc li fera foto però no li fora infidel al bar. Leo només li va dir que tornara.
 
 Jimy li va respondre:
 
@@ -118,7 +118,7 @@ Hèrcules va carregar una motxilla massa gran. Nico revisava que no faltara cap 
 
 Jimy va pujar a la furgo amb la guitarra entre les mans.
 
-El viatge va començar amb rialles cansades, finestres mig obertes i olor de nit, carretera i pizza.
+El viatge va començar amb rialles cansades, finestres mig obertes i olor de carretera i pizza.
 
 Van sopar dins la furgoneta, com si allò ja fora una tradició antiga encara que acabara de nàixer. Caixes de pizza obertes sobre les cames, llaunes de refresc passant de mà en mà i algú que sempre deia que aquell tros era seu encara que no ho fora.
 
@@ -126,7 +126,7 @@ Jimy tenia la guitarra entre les mans.
 
 No tocava cap cançó completa.
 
-Només acords menuts, suaus, com si encara estiguera buscant la manera de dir en música tot el que li havia passat aquella nit.
+Només acords menuts, suaus, com si encara estiguera buscant la manera de dir en música tot el que li havia passat aquell dia.
 
 El mòbil li va vibrar.
 
@@ -152,7 +152,7 @@ Nico i Mario discutien sobre la següent parada.
 
 Hèrcules reia per alguna cosa que havia dit Luca abans de baixar.
 
-I, de fons, diverses veus del Tercer Cel cantussejaven fragments de la cançó que havien estrenat aquella nit.
+I, de fons, diverses veus del Tercer Cel cantussejaven fragments de la cançó que havien estrenat aquell dia.
 
 Jimy va prémer una mica més la guitarra contra ell.
 
