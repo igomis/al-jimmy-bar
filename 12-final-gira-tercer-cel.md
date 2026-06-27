@@ -30,7 +30,7 @@ Cada peça que guardava semblava una despedida i una promesa alhora. Va ficar ro
 
 Rebeca el mirava amb els braços creuats, intentant fer-se la forta.
 
-Miquel estava al seu costat.
+Miquel estava al seu costat, callat, amb eixa cara de qui volia dir moltes coses i no trobava per quina començar.
 
 Jimy va tancar la bossa i es va acostar a ells.
 
@@ -48,61 +48,131 @@ Jimy va somriure.
 
 —Ho faré.
 
-Després es va quedar davant de Miquel.
+Rebeca es va apartar un poc, però no del tot. Es va quedar allí, al costat, com si necessitara veure amb els seus ulls que Jimy també podia acomiadar-se sense trencar-se.
 
-Els dos van somriure alhora.
+Després Jimy es va quedar davant de Miquel.
+
+Durant uns segons cap dels dos va parlar.
+
+El soroll del bar, que encara feia una estona ho omplia tot, ara semblava molt lluny. Només quedaven cadires arrossegades, murmuris del Tercer Cel prop de la porta i la respiració de Jimy, que li tremolava una mica més del que volia admetre.
 
 —Has vingut —va dir Jimy.
 
+Miquel va assentir, com si aquella frase li fera mal i bé alhora.
+
 —Clar que he vingut.
 
-—No era fàcil.
+—No sabia si voldries.
 
-—Tampoc era opcional.
+—Jimy...
 
-Jimy va abaixar el cap, però se li escapava el somriure.
+—Ja ho sé —el va tallar ell, fluixet—. Però jo no sabia res. Hui no sabia res de ningú. Ni de mi.
 
-—Has vist el concert?
+Miquel va abaixar la mirada un moment.
 
-—L'he vist sencer. Fins i tot quan feies cara de voler amagar-te darrere de la guitarra.
+—Jo sí que ho sabia.
 
-Jimy va riure.
+Jimy el va mirar.
 
-—Això ha passat molt?
+—Què sabies?
 
-—Més del que et penses.
+—Que tard o d'hora acabaries ací. Amb una guitarra, una bossa feta i un grup esperant-te per anar-se'n de gira.
 
-Rebeca va fer un mig somriure, però no va dir res. Aquell moment era d'ells.
+Jimy va fer un somriure menut, però se li va trencar abans d'arribar-li als ulls.
 
-Miquel li va pegar un colpet suau al muscle.
+—Jo només pensava que acabaria servint cafés tota la vida.
 
-—Tio, has estat brutal.
+—Això també ho feies bé.
 
-Jimy va negar amb el cap.
+—No és el mateix.
 
-—No sé ni com he aguantat.
+—No —va admetre Miquel—. No és el mateix.
 
-—Perquè eres tu.
+Es van quedar mirant-se, sense presses. Per una vegada, ningú els va interrompre.
 
-—Això no és una explicació.
+—Has vist el concert? —va preguntar Jimy.
 
-—Per a mi sí.
+—Sencer.
 
-Jimy el va mirar en silenci.
+—Fins quan he desafinat?
 
-—Em fa por anar-me'n.
+—Sobretot quan has desafinat.
+
+Jimy va deixar escapar una rialla curta.
+
+—Gràcies, eh.
+
+—T'ho dic perquè ho sàpies: fins i tot quan et tremolava la veu, estaves allí. No t'has amagat.
+
+Jimy va prémer la corretja de la bossa amb els dits.
+
+—M'he volgut amagar mil vegades.
+
+—Però no ho has fet.
+
+—Perquè Aries m'ha mirat com si no em deixara caure.
+
+—Doncs deixa que et miren així —va dir Miquel—. Deixa que et cuiden un poc.
+
+Jimy va respirar fondo.
+
+—Em fa por.
 
 —Ja ho sé.
 
-—Em fa por que tot siga massa gran.
+—Em fa por anar-me'n, em fa por que em vegen massa, em fa por no estar a l'altura, em fa por tornar i que tot siga diferent.
 
-—També ho sé.
+Miquel va fer un pas més prop.
 
-—Em sap greu deixar-vos.
+—Tot ja és diferent.
 
-—No ens deixes —va dir Miquel—. Només vas a començar una cosa que sempre has volgut fer.
+Jimy va empassar saliva.
 
-Jimy va respirar fondo.
+—Això no ajuda.
+
+—Sí que ajuda. Perquè vol dir que no ho has de salvar tot com estava. Només has de viure el que ve.
+
+Jimy va abaixar el cap.
+
+—I si falle?
+
+—Fallarem tots alguna vegada.
+
+—No és molt motivador.
+
+—És veritat. I també és veritat que tornaràs. Encara que siga cansat, encara que siga amb la veu feta pols, encara que siga només per menjar alguna cosa al bar i fer veure que no ens trobaves a faltar.
+
+Jimy va somriure amb els ulls humits.
+
+—Vos trobaré a faltar.
+
+—Ja ho sé.
+
+—A tu també.
+
+Miquel va intentar fer-se el dur, però la cara no li va obeir.
+
+—Més et val.
+
+Jimy va riure, i eixa vegada el riure sí que li va eixir net.
+
+Miquel li va posar una mà al muscle.
+
+—Escolta'm bé. No te'n vas perquè et sobren persones ací. Te'n vas perquè ja tens prou arrels per poder moure't.
+
+Jimy es va quedar quiet.
+
+Aquella frase li va entrar més fondo del que esperava.
+
+—M'ho has preparat?
+
+—Un poc.
+
+—Es nota.
+
+—Però és veritat.
+
+Jimy va assentir lentament.
 
 —Quan torne, vindràs a un concert?
 
@@ -114,19 +184,41 @@ Miquel va allargar el puny.
 
 —Promés.
 
-Jimy el va colpejar amb el seu i després el va abraçar.
+Jimy el va colpejar amb el seu, però no es va quedar només en això. El va abraçar.
 
-Una abraçada llarga.
+Miquel el va agafar fort, sense broma, sense fer-se l'important, com si també necessitara aquella abraçada per poder deixar-lo marxar.
 
-De les que no fan falta explicar.
+—Cuida't —va dir Jimy, encara contra el seu muscle.
 
-Quan es van separar, Miquel li va assenyalar la porta amb el cap.
+—Tu també.
 
-—Au, ves. Tens una banda esperant-te.
+—De veritat.
 
-—Cuida't.
+—Ho faré. Però tu fes una cosa per mi.
 
-—Tu també. I fes-los entendre que el millor músic del Jimy Bar ara toca amb el Tercer Cel.
+Jimy es va separar prou per mirar-lo.
+
+—Quina?
+
+—No demanes perdó per estar content.
+
+Jimy va quedar-se callat.
+
+Rebeca, al costat, va apartar la mirada perquè se li havien omplit els ulls.
+
+—Ho intentaré —va dir Jimy.
+
+Miquel va negar amb el cap.
+
+—No. Fes-ho.
+
+Jimy va respirar fondo, va mirar cap a la porta, cap als del Tercer Cel, i després una altra vegada cap a Miquel.
+
+—Ho faré.
+
+Miquel li va assenyalar la porta amb el cap.
+
+—Au. Tens una banda esperant-te.
 
 Jimy va riure amb els ulls brillants.
 
