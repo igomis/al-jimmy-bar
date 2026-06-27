@@ -30,9 +30,11 @@ Cada peça que guardava semblava una despedida i una promesa alhora. Va ficar ro
 
 Rebeca el mirava amb els braços creuats, intentant fer-se la forta.
 
-Miquel no era allí. Havia telefonat a Jimy una estona abans, des del centre on estava. Era el millor amic de Jimy, el bessó de Rebeca i, encara que era un poc més menut que ell, sempre parlava com si fora qui havia de cuidar-lo.
+Miquel estava al seu costat.
 
-Jimy va tancar la bossa i es va acostar a Rebeca.
+Jimy va tancar la bossa i es va acostar a ells.
+
+Primer va abraçar Rebeca.
 
 Ella el va estrényer fort, massa fort per a una despedida tranquil·la.
 
@@ -46,15 +48,87 @@ Jimy va somriure.
 
 —Ho faré.
 
-—Has parlat amb Miquel?
+Després es va quedar davant de Miquel.
 
-Jimy va assentir.
+Els dos van somriure alhora.
 
-—M'ha dit que soc un exagerat.
+—Has vingut —va dir Jimy.
 
-—Això vol dir que t'estima.
+—Clar que he vingut.
+
+—No era fàcil.
+
+—Tampoc era opcional.
+
+Jimy va abaixar el cap, però se li escapava el somriure.
+
+—Has vist el concert?
+
+—L'he vist sencer. Fins i tot quan feies cara de voler amagar-te darrere de la guitarra.
+
+Jimy va riure.
+
+—Això ha passat molt?
+
+—Més del que et penses.
+
+Rebeca va fer un mig somriure, però no va dir res. Aquell moment era d'ells.
+
+Miquel li va pegar un colpet suau al muscle.
+
+—Tio, has estat brutal.
+
+Jimy va negar amb el cap.
+
+—No sé ni com he aguantat.
+
+—Perquè eres tu.
+
+—Això no és una explicació.
+
+—Per a mi sí.
+
+Jimy el va mirar en silenci.
+
+—Em fa por anar-me'n.
 
 —Ja ho sé.
+
+—Em fa por que tot siga massa gran.
+
+—També ho sé.
+
+—Em sap greu deixar-vos.
+
+—No ens deixes —va dir Miquel—. Només vas a començar una cosa que sempre has volgut fer.
+
+Jimy va respirar fondo.
+
+—Quan torne, vindràs a un concert?
+
+—A tots els que puga.
+
+—Promés?
+
+Miquel va allargar el puny.
+
+—Promés.
+
+Jimy el va colpejar amb el seu i després el va abraçar.
+
+Una abraçada llarga.
+
+De les que no fan falta explicar.
+
+Quan es van separar, Miquel li va assenyalar la porta amb el cap.
+
+—Au, ves. Tens una banda esperant-te.
+
+—Cuida't.
+
+—Tu també. I fes-los entendre que el millor músic del Jimy Bar ara toca amb el Tercer Cel.
+
+Jimy va riure amb els ulls brillants.
 
 José es va quedar davant de Jimy, amb les mans a la cintura i els ulls brillants.
 
@@ -72,15 +146,7 @@ Ara el va abraçar com qui deixa anar algú que estima perquè puga créixer.
 
 —Perquè espere que amb ells pugues complir els teus somnis.
 
-Jimy va mirar el bar.
-
-La barra on havia passat mitja vida.
-
-Les taules gastades.
-
-L'escenari menut.
-
-El lloc on havia servit cafés, havia carregat caixes, havia plorat al bany i havia cantat la seua vida davant de tothom.
+Jimy va mirar el bar: la barra, les taules gastades, l'escenari menut. El lloc on havia servit cafés, havia carregat caixes, havia plorat al bany i havia cantat la seua vida davant de tothom.
 
 —Els viuré —va respondre—. I et promet que una part del que guanye serà per a aquest bar.
 
@@ -96,15 +162,37 @@ José va riure, però se li va trencar una mica la cara.
 
 —Ho he aprés de tu.
 
-Jimy també va abraçar Luca, Leo i Lliris, la mare de Luca i Leo. Luca va parlar molt, com sempre que estava nerviós, dient-li que no oblidara escriure, que no perdera la guitarra, que si veia una crema catalana decent en un altre lloc li fera foto però no li fora infidel al bar. Leo només li va dir que tornara.
+Luca, Leo i Lliris també estaven allí.
 
-Jimy li va respondre:
+Luca el va abraçar tan ràpid que quasi li va fer caure la guitarra.
+
+—No t'oblides d'escriure, no perdes la guitarra i, si veus una crema catalana decent fora d'ací, li fas foto. Però no li sigues infidel al bar.
+
+Jimy va riure.
+
+—Ho promet.
+
+Leo el va mirar amb els ulls humits.
+
+—Torna.
 
 —Tornaré.
 
+Lliris el va acariciar a la galta amb una tendresa que el va deixar sense resposta.
+
+—Ves, Jimy. Però ves content.
+
+Jimy va assentir.
+
+—Ho intentaré.
+
+—No —va dir Miquel des de darrere—. Fes-ho.
+
+Tots van riure una mica, fins i tot José.
+
 Després van eixir.
 
-La furgoneta del Tercer Cel els esperava fora, i darrere hi havia el cotxe on anaven Mario i Arnau amb part del material més delicat.
+La furgoneta del Tercer Cel els esperava fora.
 
 La conduïa Jasmín.
 
@@ -112,17 +200,17 @@ La conduïa Jasmín.
 
 Però somreia.
 
-Hèrcules va carregar una motxilla massa gran. Nico revisava que no faltara cap peça de bateria. Ariel ajudava Aries a pujar sense que ell poguera protestar massa. Arnau, tècnic a més de guitarrista, vocalista i teclista, va revisar els cables abans de pujar al cotxe amb Mario. Mario va donar un colp suau a l'esquena de Jimy quan va passar pel seu costat.
+Hèrcules va carregar una motxilla massa gran. Nico revisava que no faltara cap peça de bateria. Ariel ajudava Aries a pujar sense que ell poguera protestar massa. Arnau, tècnic a més de guitarrista, vocalista i teclista, va revisar els cables abans de pujar a la furgo. Mario va donar un colp suau a l'esquena de Jimy quan va passar pel seu costat.
 
 —Benvingut de veritat.
 
 Jimy va pujar a la furgo amb la guitarra entre les mans.
 
-El viatge va començar amb rialles cansades, finestres mig obertes i olor de carretera i pizza.
+El viatge va començar amb rialles cansades, finestres mig obertes i olor de carretera, pizza i sushi.
 
 No venien d'un concert de nit. Venien d'un dia llarguíssim. Durant el trajecte els havia donat temps a dinar, a parlar massa, a callar una estona i a tornar a riure. I ara estaven sopant.
 
-Van sopar dins la furgoneta, com si allò ja fora una tradició antiga encara que acabara de nàixer. Caixes de pizza obertes sobre les cames, llaunes de refresc passant de mà en mà i algú que sempre deia que aquell tros era seu encara que no ho fora.
+Van sopar dins la furgoneta, com si allò ja fora una tradició antiga encara que acabara de nàixer. Caixes de pizza obertes sobre les cames, safates de sushi mig buides, llaunes de refresc passant de mà en mà i algú que sempre deia que aquell tros era seu encara que no ho fora.
 
 Jimy tenia la guitarra entre les mans.
 
@@ -144,15 +232,7 @@ Ella no sabia res.
 
 —Estàs bé?
 
-Jimy va mirar al seu voltant.
-
-Ariel parlava amb Aries en veu baixa.
-
-Jasmín conduïa amb els ulls clavats a la carretera.
-
-Nico i Hèrcules discutien per una porció de pizza.
-
-I, de fons, diverses veus del Tercer Cel cantussejaven fragments de la cançó que havien estrenat aquell dia.
+Jimy va mirar al seu voltant. Ariel parlava amb Aries en veu baixa. Jasmín conduïa amb els ulls clavats a la carretera. Nico i Hèrcules discutien per una porció de pizza.
 
 Jimy va prémer una mica més la guitarra contra ell.
 
@@ -178,7 +258,7 @@ Jimy va abaixar el cap i va somriure.
 
 —No sabia si t'alegraries.
 
-—Tonto —va dir ella, i aquesta vegada sí que va riure una mica—. És la primera cosa bona que escolte en tot el dia.
+—Tonto —va dir ella—. És la primera cosa bona que escolte en tot el dia.
 
 Jimy va riure també.
 
@@ -190,15 +270,7 @@ El Jimy Bar ja quedava enrere.
 
 Però no el sentia lluny.
 
-El portava amb ell.
-
-En la guitarra.
-
-En les mans.
-
-En la veu.
-
-En la gent que havia deixat darrere i en la gent que ara cantava al seu costat.
+El portava amb ell. En la guitarra. En les mans. En la veu. En la gent que havia deixat darrere i en la gent que ara cantava al seu costat.
 
 —Crec que comença ara —va dir baixet.
 
@@ -210,42 +282,60 @@ Jimy va somriure.
 
 Quan va penjar, no va arribar el silenci.
 
-Des del cotxe de darrere, el mòbil de Mario continuava connectat en videotrucada. Mario i Arnau compartien pantalla com podien. A l'altra banda apareixien Maria, la germana bessona de Mario, i Ginesta, la germana bessona d'Arnau.
+Mario i Arnau estaven a la mateixa furgoneta i compartien el mòbil. No tenia sentit gastar-ne dos si anaven al mateix lloc. A la pantalla apareixien Maria i Ginesta.
 
 —No faces eixa cara —deia Mario, mirant Maria per la pantalla—. Tinc mètodes professionals per millorar l'ambient.
 
 —Mario, no —va advertir Ginesta.
 
-Però Mario ja havia agafat dos bastonets xinesos de la pizza i s'havia fet una cara tan absurda que Maria va acabar rient.
-
-Arnau va mirar la pantalla només un segon.
-
-Només un.
-
-Però Ginesta ho va notar.
+Però Mario ja havia agafat dos palets del sushi i s'havia fet una cara tan absurda que Maria va acabar rient.
 
 —Veus? —va dir Mario, orgullós—. Problema solucionat.
 
 —No està solucionat —va dir Maria, encara amb un somriure menut.
 
-La frase va caure dins del cotxe amb més pes del que havia de tindre.
+Arnau va deixar els cables quiets i va mirar la pantalla.
 
-Arnau va tocar un cable que ja estava ben posat, com si necessitara comprovar alguna cosa encara que no fera falta.
+—Maria, com estàs?
 
-—Després ho parlem —va dir ell.
+Ella va tardar un segon a contestar.
 
-Ginesta va assentir des de l'altra banda de la pantalla.
+—Vaig fent.
 
-—Després. Però no ho deixeu passar.
+—A mi no m'ho digues així.
+
+Maria va sospirar.
+
+—La gira està anant bé. El disc nou està funcionant. Però ja sabeu què és el pitjor.
+
+Mario va perdre el somriure.
+
+Ginesta també.
+
+Arnau va abaixar la mirada un moment.
+
+—Haver d'estar amb ell cada dia —va dir Maria—. En cada assaig, en cada concert, en cada viatge.
+
+—No estàs sola —va dir Arnau.
+
+—Ja ho sé.
+
+—De veritat —va insistir ell—. No estàs sola.
+
+Mario va agafar els palets altra vegada, però ara més fluixet.
+
+—Quan acabe la gira, sushi no. Pizza només. Els palets són massa perillosos amb mi.
+
+Maria va riure una mica.
+
+No com abans, però prou perquè tots respiraren millor.
 
 Ningú va dir el nom que tots tenien al cap.
 
 La carretera va omplir l'espai que havia quedat entre ells.
 
-I, durant uns segons, només es va sentir el motor, el paper de la pizza i una cançó del Tercer Cel que algú cantava des de la furgoneta sense saber que, en el cotxe de darrere, una altra història començava a tensar-se en silenci.
-
 Jimy va recolzar el cap contra el vidre, encara amb la guitarra entre les mans.
 
-I mentre la furgoneta avançava per la carretera, amb pizzes a mig menjar, instruments apilats, cables ben lligats i el Tercer Cel cantant de fons, va sentir que, per fi, la seua vida no s'estava acabant en aquell bar.
+I mentre la furgoneta avançava per la carretera, amb pizzes a mig menjar, sushi, instruments apilats, cables ben lligats i el Tercer Cel cantant de fons, va sentir que, per fi, la seua vida no s'estava acabant en aquell bar.
 
 S'estava obrint.
