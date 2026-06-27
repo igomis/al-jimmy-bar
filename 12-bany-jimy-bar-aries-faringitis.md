@@ -6,6 +6,8 @@ A fora, el Jimy Bar encara tremolava amb els aplaudiments. La gent cridava els s
 
 Jimy va entrar sense dir res.
 
+No havia anat al bany per fugir del concert. Hi havia anat perquè acabava de tindre una conversa amb sa mare, i aquella conversa encara li cremava dins del pit.
+
 Va recolzar les mans al costat de l'aixeta i va deixar que l'aigua correguera. Tenia el pit accelerat, les cames encara li tremolaven pel concert i els ulls li cremaven d'una manera que no tenia res a veure amb els focus.
 
 Va mirar-se al mirall.
@@ -28,7 +30,7 @@ Venia d'un racó del bany.
 
 Era Aries.
 
-Estava assegut a terra, amb l'esquena contra la paret i la respiració desfeta. Tenia una mà al coll, com si intentara aguantar dins la gola una veu que ja no li responia. Rebeca, la cosina de Jimy, s'havia agenollat davant d'ell i intentava calmar-lo sense èxit.
+Estava assegut a terra, amb l'esquena contra la paret i la respiració desfeta. Tenia una mà al coll, com si intentara aguantar dins la gola una veu que ja no li responia. Rebeca, la cosina d'Aries i la nòvia de Jimy, s'havia agenollat davant d'ell i intentava calmar-lo sense èxit.
 
 —Aries... mira'm... per favor... Respira... estic ací...
 
@@ -72,7 +74,7 @@ Rebeca va girar el cap cap a ell.
 
 I se li va trencar alguna cosa per dins.
 
-Mai havia vist Jimy així. L'havia vist enfadat, callat, distant, ferit. Havia vist el seu cosí fer-se el fort tantes vegades que quasi havia arribat a creure que no sabia caure. Però ara estava caient davant d'ella.
+Mai havia vist Jimy així. L'havia vist enfadat, callat, distant, ferit. Havia vist el seu nòvio fer-se el fort tantes vegades que quasi havia arribat a creure que no sabia caure. Però ara estava caient davant d'ella.
 
 Durant un segon va mirar Aries. Després va mirar el Tercer Cel, que ja s'acostava a ell. I va entendre que el seu cosí no es quedaria sol.
 
