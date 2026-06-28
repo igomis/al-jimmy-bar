@@ -6,13 +6,13 @@ Després de penjar amb Sky, Jimy s'havia quedat una estona amb el mòbil entre l
 
 Al darrere, la videotrucada amb Maria i Ginesta encara havia durat uns minuts més.
 
-Mario havia intentat tornar a fer bromes amb els palets, però ja no li eixien tan fortes. Coneixia massa bé Maria. Eren bessons, i hi havia coses que ell detectava abans que ella les posara en paraules: un silenci una mica més llarg, un somriure massa quiet, una manera de mirar cap a un costat quan no volia preocupar-lo. Arnau havia parlat poc. Massa poc. Ell sí que ho sabia tot, perquè el problema també li queia damunt, perquè cada dia lluny de Maria també era un dia menys amb ella, i Maria, amb ell, no havia fingit res. Maria intentava somriure perquè Mario poguera marxar tranquil, però cada vegada que la imatge tremolava per la connexió, a Arnau se li tancava una mica més la cara.
+Mario havia intentat tornar a fer bromes amb els palets, però ja no li eixien tan fortes. Coneixia massa bé Maria. Eren bessons, i hi havia coses que ell detectava abans que ella les posara en paraules: un silenci una mica més llarg, un somriure massa quiet, una manera de mirar cap a un costat quan no volia preocupar-lo. Arnau havia parlat poc. Massa poc. Arnau sí que ho sabia tot, perquè el problema també li queia damunt, perquè cada dia lluny de Maria també era un dia menys amb ella, i Maria, amb ell, no havia fingit res. Maria intentava somriure perquè Mario poguera marxar tranquil, però cada vegada que la imatge tremolava per la connexió, a Arnau se li tancava una mica més la cara.
 
 Ginesta no estava en aquella gira amb Maria.
 
 No compartien banda, ni furgoneta, ni escenari.
 
-Però els mànagers dels seus grups solien preparar concerts als mateixos llocs. Compartien fans, compartien sales, compartien massa cançons conjuntes com per fingir que les dues bandes no es necessitaven. La música era el seu treball, i encara que Ginesta estava super enfadada amb Alex per tot el que li deia a Arnau, per tot el que li feia a Maria i per aquella manera tan cansina de repetir quant volia Maria com si voler-la li donara dret a tot, els altres del grup de Ginesta no estaven molestos amb ell. No de la mateixa manera.
+Però els mànagers dels seus grups solien preparar concerts als mateixos llocs. Compartien fans, compartien sales, compartien massa cançons conjuntes com per fingir que les dues bandes no es necessitaven. La música era el seu treball, i encara que Ginesta estava super enfadada amb "Ell" per tot el que li deia a Arnau, per tot el que li feia a Maria i per aquella manera tan cansina de repetir quant volia Maria com si voler-la li donara dret a tot, els altres del grup de Ginesta no estaven molestos amb "Ell". No de la mateixa manera.
 
 Per això Maria havia acabat aquella nit a la furgona del grup de Ginesta.
 
@@ -150,7 +150,7 @@ Maria va contestar quasi de seguida.
 
 Arnau va empassar saliva.
 
-Sabia que Maria no li estava donant una frase per calmar-lo. A ell no podia donar-li'n una. Amb Arnau era completament sincera, perquè ell coneixia tota la situació i perquè també la patia. Aquella gira no li estava donant llibertat. Li estava llevant hores amb Arnau i li estava donant massa hores amb Ell. Massa assajos, massa passadissos, massa furgonetes, massa escenaris compartits amb algú que ja no volia prop i que continuava sent una molèstia enganxada a cada dia.
+Sabia que Maria no li estava donant una frase per calmar-lo. A ell no podia donar-li'n una. Amb Arnau era completament sincera, perquè ell coneixia tota la situació i perquè també la patia. Aquella gira no li estava donant llibertat. Li estava llevant hores amb Arnau i li estava donant massa hores amb "Ell". Massa assajos, massa passadissos, massa furgonetes, massa escenaris compartits amb algú que ja no volia prop i que continuava sent una molèstia enganxada a cada dia.
 
 Cada dia lluny d'Arnau era un dia menys amb ell.
 
@@ -192,7 +192,7 @@ Sempre responia.
 
 —Estic millor ací. En la furgona de Ginesta ningú em mira com si haguera d'obeir.
 
-—Abans que Ell es desperte tornaré a la meua. Si no, em bonegarà, i hui no puc amb una altra bronca seua.
+—Abans que "Ell" es desperte tornaré a la meua. Si no, em bonegarà, i hui no puc amb una altra bronca seua.
 
 —Et trobe molt a faltar. Hui més que abans. No t'ho dic perquè em salves, t'ho dic perquè ho sàpies.
 
@@ -266,7 +266,7 @@ Ginesta contestava amb paciència de millor amiga i mala llet controlada. Era qu
 
 —Està nerviosa, però m'està parlant de veritat.
 
-—Abans que Alex es desperte tornarà a la seua furgona, perquè ja saps com és.
+—Abans que "Ell" es desperte tornarà a la seua furgona, perquè ja saps com és.
 
 —No la maregeu tots. Jo la tinc.
 
@@ -330,7 +330,7 @@ Però abans de rendir-se del tot, va girar-se una mica cap a Jasmín.
 
 —No has de soltar res.
 
-Nico va agafar el got amb les dues mans, va bufar perquè no cremara i li'l va acostar a la boca mentre ella continuava conduint.
+Jasmín tenia un got enorme, d'eixos fets per a omplir-los de cafè i que duren mitja vida, encaixat al costat del canvi de marxes. Nico el va agafar amb les dues mans, va bufar perquè no cremara i li'l va acostar a la boca mentre ella continuava conduint.
 
 Jasmín va beure un glop sense apartar els ulls de la carretera.
 
@@ -368,7 +368,7 @@ Després una altra.
 
 I una altra.
 
-Nico es va adormir amb el got buit entre les mans, la dessuadora de Jasmín posada i el cap caigut cap al costat.
+Nico es va adormir amb el got gran entre les mans, la dessuadora de Jasmín posada i el cap caigut cap al costat.
 
 Però no dormia molt seguit.
 
@@ -392,7 +392,7 @@ Després tornava a caure cap al seient.
 
 Jasmín va negar amb el cap, però somreia.
 
-La nit va anar convertint aquella pregunta en una rutina tendra: Nico es despertava, preguntava sempre el mateix, li acostava el got si ella deia que sí i tornava a adormir-se com si aquella fora l'única missió que el cos encara li permetia complir.
+La nit va anar convertint aquella pregunta en una rutina tendra: Nico es despertava, preguntava sempre el mateix, li acostava el got si ella deia que sí i tornava a adormir-se com si aquella fora l'única missió que el cos encara li permetia complir. I el got, tan gran com era, continuava resistint com una promesa de cafeïna fins que la carretera començara a clarejar.
 
 A la furgoneta ja només quedava desperta ella.
 
@@ -411,3 +411,27 @@ Nicolau dormia al seient del copilot, vençut per la son, amb la dessuadora de J
 I Jasmín conduïa sola de nit, amb la carretera oberta davant, les mans fermes al volant, la dessuadora de Nico damunt dels muscles i tota la banda adormida al darrere.
 
 La primera nit de gira acabava de començar, i dins d'aquella furgoneta, sense que calguera dir-ho en veu alta, el Tercer Cel ja era una família.
+
+Maria es va despertar en la furgona del seu grup amb la llum grisa del matí entrant-li pels ulls i el cos encara tens, com si no haguera dormit del tot. Durant uns segons no va saber on era. Després va recordar que havia tornat abans que "Ell" es despertara, en silenci, amb la dessuadora tancada fins al coll i el mòbil a la mà.
+
+No havia sigut descans.
+
+Havia sigut supervivència.
+
+El primer missatge que va veure era de Ginesta.
+
+—Bar?
+
+Maria va mirar al seu voltant. Ningú de la seua furgona semblava completament despert encara. Va agafar la jaqueta, va obrir la porta amb la màxima cura possible i va baixar sense fer soroll.
+
+Ginesta l'esperava fora, amb els cabells mal arreplegats i cara de no haver dormit tampoc.
+
+—Café? —va preguntar.
+
+Maria va respirar una mica millor.
+
+—Café.
+
+I les dues van caminar cap al primer bar obert, una al costat de l'altra, sense pressa, com si aquell tros de matí encara fora seu abans que la gira tornara a demanar-los-ho tot.
+
+Fi
