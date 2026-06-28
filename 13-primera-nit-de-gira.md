@@ -6,13 +6,13 @@ Després de penjar amb Sky, Jimy s'havia quedat una estona amb el mòbil entre l
 
 Al darrere, la videotrucada amb Maria i Ginesta encara havia durat uns minuts més.
 
-Mario havia intentat tornar a fer bromes amb els palets, però ja no li eixien tan fortes. Arnau havia parlat poc. Massa poc. Maria intentava somriure perquè tots pogueren marxar tranquils, però cada vegada que la imatge tremolava per la connexió, a Arnau se li tancava una mica més la cara.
+Mario havia intentat tornar a fer bromes amb els palets, però ja no li eixien tan fortes. Coneixia massa bé Maria. Eren bessons, i hi havia coses que ell detectava abans que ella les posara en paraules: un silenci una mica més llarg, un somriure massa quiet, una manera de mirar cap a un costat quan no volia preocupar-lo. Arnau havia parlat poc. Massa poc. Ell sí que ho sabia tot, perquè el problema també li queia damunt, perquè cada dia lluny de Maria també era un dia menys amb ella, i Maria, amb ell, no havia fingit res. Maria intentava somriure perquè Mario poguera marxar tranquil, però cada vegada que la imatge tremolava per la connexió, a Arnau se li tancava una mica més la cara.
 
 Ginesta no estava en aquella gira amb Maria.
 
 No compartien banda, ni furgoneta, ni escenari.
 
-Però Maria li parlava més a ella que a ningú, perquè Ginesta era la seua millor amiga i hi havia coses que només li podien eixir si les deia sense haver d'explicar-se del tot.
+Però Maria li parlava més a ella que a ningú, perquè Ginesta era la seua millor amiga i hi havia coses que només li podien eixir si les deia sense haver d'explicar-se del tot. Ginesta era qui millor sabia com estava Maria de veritat: quan exagerava un riure, quan callava massa, quan deia "estic cansada" perquè encara no podia dir "estic espantada" davant de tots.
 
 —Escriviu quan pareu —va dir Ginesta des de la pantalla.
 
@@ -28,7 +28,7 @@ Mario va obrir la boca, ofés.
 
 —Una i mitja.
 
-Maria va riure una mica, i aquell riure, encara que menut, va fer que Arnau respirara millor durant uns segons.
+Maria va riure una mica, i aquell riure, encara que menut, va fer que Arnau respirara millor durant uns segons. Mario també va somriure, però no del tot. Havia sentit alguna cosa darrere del riure de la seua germana, una esquerda menuda que Maria li havia intentat amagar perquè no volia carregar-lo amb més por.
 
 Després es van acomiadar.
 
@@ -40,11 +40,13 @@ Jasmín conduïa amb els ulls oberts i ferms, però amb la cara suau. De tant en
 
 Tots sabien conduir.
 
-Però ningú conduïa com ella.
+Tots podien posar-se al volant si calia.
 
-Jasmín era la que menys pujava a l'escenari, la que més vegades quedava a un costat quan els focus s'encenien, la que a voltes havia sentit que alguns la miraven com si només acompanyara la banda. Però cada gira començava quan ella arrancava la furgoneta. Cada concert arribava perquè ella aguantava la nit, les corbes, els mapes, els peatges i el cansament dels altres.
+Però, a la pràctica, Jasmín era la conductora habitual de la banda perquè era qui menys pujava a l'escenari. Era la que més vegades quedava a un costat quan els focus s'encenien, la que a voltes havia sentit que alguns la miraven com si només acompanyara la banda. Però cada gira començava quan ella arrancava la furgoneta. Cada concert arribava perquè ella aguantava la nit, les corbes, els mapes, els peatges i el cansament dels altres.
 
 No era només la xofer del grup.
+
+Era una peça imprescindible del Tercer Cel.
 
 Era la que feia que el grup poguera arribar.
 
@@ -140,13 +142,15 @@ No molt.
 
 Maria va contestar quasi de seguida.
 
-—Sí. No puc dormir massa, però estic bé.
+—No del tot. Estic desperta perquè si tanque els ulls pense en demà, i en passat-demà, i en tots els dies que no estic amb tu.
 
 Arnau va empassar saliva.
 
-Sabia que aquell "estic bé" no volia dir que estiguera bé del tot. Volia dir que continuava allí. Que aguantava. Que no volia que ell es trencara més del necessari.
+Sabia que Maria no li estava donant una frase per calmar-lo. A ell no podia donar-li'n una. Amb Arnau era completament sincera, perquè ell coneixia tota la situació i perquè també la patia. Aquella gira no li estava donant llibertat. Li estava llevant hores amb Arnau i li estava donant massa hores amb el seu ex. Massa assajos, massa passadissos, massa furgonetes, massa escenaris compartits amb algú que ja no volia prop i que continuava sent una molèstia enganxada a cada dia.
 
-Maria també estava de gira, però aquella gira no li estava donant llibertat. Li estava llevant hores amb Arnau i li estava donant massa hores amb el seu ex. Massa assajos, massa passadissos, massa furgonetes, massa escenaris compartits amb algú que ja no volia prop i que continuava sent una molèstia enganxada a cada dia.
+Cada dia lluny d'Arnau era un dia menys amb ell.
+
+I cada dia de gira era també un dia més aguantant aquella presència constant.
 
 Arnau va escriure una resposta.
 
@@ -158,7 +162,7 @@ Després només va posar:
 
 Maria va contestar:
 
-—Jo també. Dorm una mica, per favor.
+—Jo també. I per això em costa respirar quan pense en tots els dies que encara falten. Però estic parlant amb Ginesta. No estic sola.
 
 Arnau ho va intentar.
 
@@ -180,15 +184,15 @@ I Maria responia.
 
 Sempre responia.
 
-—Sí.
+—No he dormit encara. M'està pujant l'ansietat, però Ginesta m'està aguantant la nit.
 
-—Sí, amor.
+—He eixit al passadís perquè ell estava massa prop. No ha fet res, però em molesta fins i tot sentir-lo respirar al costat.
 
-—Estic desperta.
+—Et trobe molt a faltar. Hui més que abans. No t'ho dic perquè em salves, t'ho dic perquè ho sàpies.
 
-—Parle amb Ginesta. No patisques.
+—Estic cansada de fingir davant de Mario. Amb tu no vull fingir.
 
-—Intenta dormir tu.
+—Intenta dormir tu. Jo et conteste sempre.
 
 Només quan veia aquelles paraules, Arnau tornava a recolzar el cap, tancava els ulls i fingia que ara sí, que ara el cos li faria cas.
 
@@ -230,11 +234,13 @@ Mario es va posar la mascareta facial amb els ulls molt oberts, intentant no riu
 
 Però Mario tampoc dormia del tot.
 
-Cada poc temps obria un ull, agafava el mòbil i escrivia a Ginesta, no a Maria.
+Cada poc temps obria un ull i agafava el mòbil, però no escrivia a Maria.
 
-No volia molestar Maria.
+No volia molestar-la.
 
-Sabia que si Maria estava desperta era perquè estava nerviosa, i sabia que si Maria parlava amb algú de veritat seria amb Ginesta. Per això Mario no li enviava missatges directes. No volia afegir-li una altra preocupació a la nit.
+Sabia que la seua germana estava passant-ho malament. Ho sabia perquè era Maria, perquè era la seua bessona, perquè ell notava quan alguna cosa se li trencava encara que ella intentara tapar-ho amb un acudit o amb un "estic bé" dit massa ràpid. Però també sabia que Maria no li havia contat tota la veritat per protegir-lo, i ell no volia obligar-la a sostenir també la seua preocupació.
+
+Per això escrivia a Ginesta.
 
 A Ginesta, en canvi, li escrivia sense disfressar-se de bromista.
 
@@ -242,21 +248,23 @@ A Ginesta, en canvi, li escrivia sense disfressar-se de bromista.
 
 Una estona després:
 
-—Està bé?
+—Està molt malament?
 
 Més tard:
 
-—No li escric perquè no vull molestar-la.
+—No li escric perquè no vull carregar-la més.
 
-Ginesta contestava amb paciència de millor amiga i mala llet controlada.
+Ginesta contestava amb paciència de millor amiga i mala llet controlada. Era qui més estava parlant amb Maria aquella nit. Qui més li llegia els silencis. Qui sabia quan calia fer-li una broma i quan calia deixar-la dir, sense arreglar-li res de pressa.
 
 —Sí. Està desperta.
 
-—Està nerviosa, però m'està parlant.
+—Està nerviosa, però m'està parlant de veritat.
 
 —No la maregeu tots. Jo la tinc.
 
-—Dorm, Mario.
+—No està sola, Mario.
+
+—Dorm una mica.
 
 Mario mirava la pantalla, respirava una mica millor i tornava a deixar el mòbil damunt del pit, sobre el batí de cors, com si Ginesta li haguera enviat una manta a través de les paraules.
 
@@ -375,6 +383,8 @@ Després tornava a caure cap al seient.
 —Però el millor cambrer nocturn —va murmurar ell, ja quasi dormint.
 
 Jasmín va negar amb el cap, però somreia.
+
+La nit va anar convertint aquella pregunta en una rutina tendra: Nico es despertava, preguntava sempre el mateix, li acostava el got si ella deia que sí i tornava a adormir-se com si aquella fora l'única missió que el cos encara li permetia complir.
 
 A la furgoneta ja només quedava desperta ella.
 
