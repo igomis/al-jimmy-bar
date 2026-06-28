@@ -12,7 +12,11 @@ Ginesta no estava en aquella gira amb Maria.
 
 No compartien banda, ni furgoneta, ni escenari.
 
-Però Maria li parlava més a ella que a ningú, perquè Ginesta era la seua millor amiga i hi havia coses que només li podien eixir si les deia sense haver d'explicar-se del tot. Ginesta era qui millor sabia com estava Maria de veritat: quan exagerava un riure, quan callava massa, quan deia "estic cansada" perquè encara no podia dir "estic espantada" davant de tots.
+Però els mànagers dels seus grups solien preparar concerts als mateixos llocs. Compartien fans, compartien sales, compartien massa cançons conjuntes com per fingir que les dues bandes no es necessitaven. La música era el seu treball, i encara que Ginesta estava super enfadada amb Alex per tot el que li deia a Arnau, per tot el que li feia a Maria i per aquella manera tan cansina de repetir quant volia Maria com si voler-la li donara dret a tot, els altres del grup de Ginesta no estaven molestos amb ell. No de la mateixa manera.
+
+Per això Maria havia acabat aquella nit a la furgona del grup de Ginesta.
+
+Allí Maria queia bé. La deixaven quedar-se sense fer preguntes de més, sense mirar-la com si fora un problema, sense obligar-la a explicar per què necessitava respirar lluny de la seua pròpia banda. Ginesta era la seua millor amiga i Maria li parlava més a ella que a ningú, perquè hi havia coses que només li podien eixir si les deia sense haver d'explicar-se del tot. Ginesta era qui millor sabia com estava Maria de veritat: quan exagerava un riure, quan callava massa, quan deia "estic cansada" perquè encara no podia dir "estic espantada" davant de tots.
 
 —Escriviu quan pareu —va dir Ginesta des de la pantalla.
 
@@ -90,7 +94,7 @@ Nico va riure fluixet, però no va insistir.
 
 Ariel i Aries ja havien convertit dos seients en un niu impossible.
 
-La bufanda enorme amb estampat de sirenes i calaveres els cobria quasi sencers. Era massa gran per a una sola persona i massa estranya per a qualsevol altra banda del món, però en ells tenia tot el sentit. Les sirenes quedaven barrejades amb les calaveres, els plecs amb les cremalleres de les jaquetes, i una punta de la bufanda queia fins al terra de la furgoneta com una bandera cansada.
+La bufanda enorme amb estampat de sireres i calaveres els cobria quasi sencers. Era massa gran per a una sola persona i massa estranya per a qualsevol altra banda del món, però en ells tenia tot el sentit. Les sireres quedaven barrejades amb les calaveres, els plecs amb les cremalleres de les jaquetes, i una punta de la bufanda queia fins al terra de la furgoneta com una bandera cansada.
 
 Tots dos portaven els seus antifaços.
 
@@ -142,11 +146,11 @@ No molt.
 
 Maria va contestar quasi de seguida.
 
-—No del tot. Estic desperta perquè si tanque els ulls pense en demà, i en passat-demà, i en tots els dies que no estic amb tu.
+—No del tot. Estic a la furgona de Ginesta. Ací puc respirar una mica, però si tanque els ulls pense en demà, i en passat-demà, i en tots els dies que no estic amb tu.
 
 Arnau va empassar saliva.
 
-Sabia que Maria no li estava donant una frase per calmar-lo. A ell no podia donar-li'n una. Amb Arnau era completament sincera, perquè ell coneixia tota la situació i perquè també la patia. Aquella gira no li estava donant llibertat. Li estava llevant hores amb Arnau i li estava donant massa hores amb el seu ex. Massa assajos, massa passadissos, massa furgonetes, massa escenaris compartits amb algú que ja no volia prop i que continuava sent una molèstia enganxada a cada dia.
+Sabia que Maria no li estava donant una frase per calmar-lo. A ell no podia donar-li'n una. Amb Arnau era completament sincera, perquè ell coneixia tota la situació i perquè també la patia. Aquella gira no li estava donant llibertat. Li estava llevant hores amb Arnau i li estava donant massa hores amb Ell. Massa assajos, massa passadissos, massa furgonetes, massa escenaris compartits amb algú que ja no volia prop i que continuava sent una molèstia enganxada a cada dia.
 
 Cada dia lluny d'Arnau era un dia menys amb ell.
 
@@ -162,7 +166,7 @@ Després només va posar:
 
 Maria va contestar:
 
-—Jo també. I per això em costa respirar quan pense en tots els dies que encara falten. Però estic parlant amb Ginesta. No estic sola.
+—Jo també. I per això em costa respirar quan pense en tots els dies que encara falten. Però estic amb Ginesta. No estic sola.
 
 Arnau ho va intentar.
 
@@ -186,7 +190,9 @@ Sempre responia.
 
 —No he dormit encara. M'està pujant l'ansietat, però Ginesta m'està aguantant la nit.
 
-—He eixit al passadís perquè ell estava massa prop. No ha fet res, però em molesta fins i tot sentir-lo respirar al costat.
+—Estic millor ací. En la furgona de Ginesta ningú em mira com si haguera d'obeir.
+
+—Abans que Ell es desperte tornaré a la meua. Si no, em bonegarà, i hui no puc amb una altra bronca seua.
 
 —Et trobe molt a faltar. Hui més que abans. No t'ho dic perquè em salves, t'ho dic perquè ho sàpies.
 
@@ -256,9 +262,11 @@ Més tard:
 
 Ginesta contestava amb paciència de millor amiga i mala llet controlada. Era qui més estava parlant amb Maria aquella nit. Qui més li llegia els silencis. Qui sabia quan calia fer-li una broma i quan calia deixar-la dir, sense arreglar-li res de pressa.
 
-—Sí. Està desperta.
+—Sí. Està ací amb mi.
 
 —Està nerviosa, però m'està parlant de veritat.
+
+—Abans que Alex es desperte tornarà a la seua furgona, perquè ja saps com és.
 
 —No la maregeu tots. Jo la tinc.
 
@@ -390,7 +398,7 @@ A la furgoneta ja només quedava desperta ella.
 
 Darrere, Natalia i Hèrcules dormien amb els cascos compartits, un auricular cadascun, i un somriure que encara semblava continuar escoltant la mateixa cançó.
 
-Ariel i Aries dormien junts sota la seua enorme bufanda de sirenes i calaveres, amb els antifaços posats i les mans agafades com si la nit no tinguera permís per separar-los.
+Ariel i Aries dormien junts sota la seua enorme bufanda de sireres i calaveres, amb els antifaços posats i les mans agafades com si la nit no tinguera permís per separar-los.
 
 Arnau dormia a trossos, amb la dessuadora de Maria i el mòbil encara calent a la mà, preparat per despertar-se una altra vegada i escriure les mateixes quatre paraules.
 
