@@ -10,6 +10,9 @@
 - [x] Capítol 8: Nit a casa de Nico (`08-capitol-8.md`)
 - [x] Capítol 9: La trobada de Sky i Miquel (`09-capitol-9.md`)
 - [x] Capítol 10: L'últim dia d'estiu (`10-capitol-10.md`)
+- [x] Capítol 11: Un Nadal perfecte (`11-capitol-11.md`)
+- [x] Capítol 12: Al Jimy Bar (`12-capitol-12.md`)
+- [x] Capítol 13: Primera nit de gira (`13-primera-nit-de-gira.md`)
 
 ## Notes generals
 

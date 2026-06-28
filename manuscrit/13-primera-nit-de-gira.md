@@ -1,4 +1,4 @@
-# Capítol 13 - Primera nit de gira
+# Capítol 13: Primera nit de gira
 
 La carretera continuava obrint-se davant de la furgoneta com una línia fosca i infinita.
 
